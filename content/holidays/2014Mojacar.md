@@ -1,6 +1,5 @@
 +++
 date = "2014-09-08T17:55:00+01:00"
-draft = true
 title = "Mojacar 2014"
 
 +++

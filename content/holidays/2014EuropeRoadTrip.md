@@ -1,6 +1,5 @@
 +++
 date = "2014-06-21T18:02:20+01:00"
-draft = true
 title = "Europe Road Trip 2014"
 
 +++

@@ -1,0 +1,3 @@
+[submodule "public"]
+	path = public
+	url = https://github.com/andew42/andew42.github.io.git

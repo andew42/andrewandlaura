@@ -1,6 +1,5 @@
 +++
 date = "2015-08-07T17:54:45+01:00"
-draft = true
 title = "Danscombe Mine 2015"
 
 +++
