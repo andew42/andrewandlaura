@@ -1,2 +1,1 @@
-# andew42.github.com
-Hosting for andrewandlaura.com
+Hosting for git.andrewandlaura.com
