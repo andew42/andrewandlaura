@@ -1,10 +1,7 @@
 <?xml version="1.0" encoding="UTF-8"?>
 <project version="4">
   <component name="ChangeListManager">
-    <list default="true" id="b04371dc-ada4-49c1-93d2-02fb4cc52bff" name="Default" comment="">
-      <change type="MODIFICATION" beforePath="$PROJECT_DIR$/deploy.sh" afterPath="$PROJECT_DIR$/deploy.sh" />
-      <change type="MODIFICATION" beforePath="$PROJECT_DIR$/.idea/workspace.xml" afterPath="$PROJECT_DIR$/.idea/workspace.xml" />
-    </list>
+    <list default="true" id="b04371dc-ada4-49c1-93d2-02fb4cc52bff" name="Default" comment="" />
     <ignored path="holidays.iws" />
     <ignored path=".idea/workspace.xml" />
     <option name="EXCLUDED_CONVERTED_TO_IGNORED" value="true" />
@@ -310,7 +307,13 @@
       <option name="project" value="LOCAL" />
       <updated>1440053457656</updated>
     </task>
-    <option name="localTasksCounter" value="4" />
+    <task id="LOCAL-00004" summary="Update deploy script">
+      <created>1440053858634</created>
+      <option name="number" value="00004" />
+      <option name="project" value="LOCAL" />
+      <updated>1440053858634</updated>
+    </task>
+    <option name="localTasksCounter" value="5" />
     <servers />
   </component>
   <component name="TodoView" selected-index="0">
@@ -376,7 +379,8 @@
     </option>
     <MESSAGE value="Initial content" />
     <MESSAGE value="Remove generated code" />
-    <option name="LAST_COMMIT_MESSAGE" value="Remove generated code" />
+    <MESSAGE value="Update deploy script" />
+    <option name="LAST_COMMIT_MESSAGE" value="Update deploy script" />
   </component>
   <component name="XDebuggerManager">
     <breakpoint-manager />
