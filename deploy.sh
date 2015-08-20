@@ -3,7 +3,7 @@
 echo -e "\033[0;32mDeploying updates to GitHub...\033[0m"
 
 # Remove existing files (in case we are deleting something)
-rm -r public
+# rm -r public
 
 # Build the project (no theme)
 hugo
