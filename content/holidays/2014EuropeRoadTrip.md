@@ -1,7 +1,6 @@
 +++
 date = "2014-06-21T18:02:20+01:00"
-title = "Europe Road Trip 2014"
-
+title = "2014 Europe Road Trip"
 +++
 
 Saturday 21st June

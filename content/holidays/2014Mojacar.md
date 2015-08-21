@@ -1,7 +1,6 @@
 +++
 date = "2014-09-08T17:55:00+01:00"
-title = "Mojacar 2014"
-
+title = "2014 Mojacar"
 +++
 
 Visiting Jackie in Mojacar

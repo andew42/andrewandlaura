@@ -1,7 +1,6 @@
 +++
 date = "2015-08-07T17:54:45+01:00"
-title = "Danscombe Mine 2015"
-
+title = "2015 Danscombe Mine"
 +++
 
 Friday 7th August
