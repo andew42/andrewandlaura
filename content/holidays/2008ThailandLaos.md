@@ -5,14 +5,12 @@ title = "2008 Thailand & Laos"
 
 Sat 12th April
 =
-
 Andrew & I are off on another Gecko Travel holiday to Thailand & Laos, this time Nick is coming with us. Peter picked us all up & drove us to Heathrow.
 
 The flight was great, although 11½ hours long, Thai Airways always get it right, even to more than edible food.
 
 Sun 13th April
 =
-
 We arrived at 7am Bangkok time, Mr T picked us up & drove us to the Viengtai hotel, singing  Elvis' Can't Help Falling In Love as he drove!
 
 The Vientai is where we bumped into Matt & Anna on our last visit here.
@@ -25,7 +23,6 @@ By 7pm we'd all had enough so returned to Vientai for a shower & change of cloth
 
 Mon 14th April
 =
-
 Met Nick for breakfast then we went out for a ride in a Tuk Tuk, Harry the driver took us down to the Chao Phraya river where we went on an hours boat trip around the river but the Kings Barges were closed for the New Year celebrations, a shame as Andrew & I had seen them last time & they are stunning. Harry picked us back up & we went to a Wat then on to the Royal Thai Handicraft shop, which annoyed us as we didn't want to shop. We went in reluctantly and wandered around, bought a lovely mobile for Baby, {Simon will be a Dad any day now} a pair of earrings for Margaret and a pair for me. We then came to the furniture section and both fell in love with a fabulous hand carved Elephant screen, it's in 5 sections & totally stunning. We decided on the spot that we had to buy it.
 
 Nick bought a Buddha face carved in 3 sections, it's lovely too & will be shipped home with our screen. Harry drove us back to Vientai then & w dropped off our shopping & went out for lunch.
@@ -36,7 +33,6 @@ Nick went out water fighting as he's bought a larger pistol to play with! We met
 
 Tue 15th April
 =
-
 Mr. T picked us up and took us to the airport, singing to us all the way again, I videoed him this time. We had a one hour flight to Chiang Mai to meet James our tour guide and the other backpackers on the rest of this trip. We were met at the airport and taken to our hotel.
 
 We are staying at the Chiangmai Thai House in Chiang Mai for the next 2 nights.
@@ -45,7 +41,6 @@ Went out with water pistols again, Nick has upgraded his pistol again. We went t
 
 Wed 16th April
 =
-
 We met the rest of the tour people this morning at breakfast, then Andrew & I went out to explore the old town area, we found the  lovely Tamarind Village Hotel & decided that we'd love to stay there if we come back.
 
 Our next stop was at Wat Doi Suthep a fabulous temple with lots of gold leaf. According to legend, the temple site was chosen by an elephant carrying a holy relic. Originally the relic was to be enshrined at Wat Suan Dok in 1371, but it split in two. The second piece was placed on the back of an elephant which proceeded to climb Doi Suthep. After 3 days the elephant finally reached a level piece of ground, circled three times, knelt down & then died.
@@ -66,7 +61,6 @@ James was taking the rest of the group to the night bazaar, we arranged to meet 
 
 Thu 17th April
 =
-
 Up for breakfast, Andrew & Nick both have overhangs. We went to collect our clothes, back to hotel for lunch & then it was time to leave Chiang Mai & head to Chiang Rai.
 
 I noticed then 3 missed calls from Simon, & phoned him straight away to discover that Molly had been born 2 hours before, she weighs 7lb 13oz. Which is ¼ oz more than her Daddy did.
@@ -85,7 +79,6 @@ We drove on then to the hotel & after dinner Andrew & I retired early to recover
 
 Fri 18th April
 =
-
 Breakfasted early & were on the road by 8am, we stopped at the crossing Thai/Laos/Burma borders. We wandered around a market & bought a pink dress for Molly & a brilliant mozzie zapper shaped like a tennis racquet. Had a coffee then it was time to go to see the Scorpion Statue at Wat Doi Wao near the Mae Sai River another fabulous monument with a wonderful view of the Myanmar mountains.
 
 We walked down by the Mae Kong River & then to the Wat Phra Chedi Luang with the huge Naga staircase & down to the stupa.
@@ -104,7 +97,6 @@ Dinner was the best yet for me, a marvellous massaman curry with fried morning g
 
 Sat 19th April
 =
-
 After breakfast it was time to go and queue for visas to enable us to cross the Mekong River by ferry into Laos. We were then taken by car up to the Lanten village where we met Mr. Samsei who is the Head Man of the village, the Shaman and also the Headmaster of the school. The school is quite large and has 10 teachers and about 280 pupils from the surrounding areas.
 
 We visited the school and also gave the children footballs that we'd bought en route at James' suggestion and left Mr. Samsei a donation for the school.
@@ -121,22 +113,18 @@ The outside of the hut was inundated with caterpillars but we'd used up the batt
 
 Sun 20th April
 =
-
 Andrew and I had a lazy day here today, we walked into the town about 3 miles away but there was not a lot to do there so we had a cold drink each then walked back to the lodge. Relaxed then went for dinner with the rest of the group. No electricity at all tonight as the generator has packed up – poor people, how do they cope? We had a wonderful candlelit dinner and more Laos beer and really enjoyed the evening anyway.
 
 Mon 21st April
 =
-
 We left the Eco Lodge  at 7.30am and most of the day was spent travelling, though we stopped at 2 Hmong villages en route where we watched a lady drying rice on a large mat and bought Alison and I a hand made silk scarf each. Took photos of the local children and their dogs and visited a small school there too.We had fabulous beef noodle soup at a little cafe at lunchtime. Reached out destination at about 5pm. A fabulous chalet on stilts with a mozzie net over our bed and stunning views of the Ou River with all the little fishing boats and the Oudom Xai Provence Mountains which we later watched the sun set behind. We ate at 7pm and I was bitten to bits, there were strange beasties climbing into my hair and 2” long flying beetles which were in our bedroom too. I got under the mozzie net a.s.a.p. while Andrew zapped anything that moved for me!
 
 Tue 22nd April
 =
-
 We were up at 6am packed, breakfasted and off for a boat trip down the Ou River, wonderful scenery all the way. We stopped at an island for a picnic lunch then paddled on to the Tham Ting Caves the gateway where the Ou and Mekong Rivers meet. Our destination is Luang Prabang where we will stay for 4 nights. We arrived at about 5.30pm and showered before we did anything else. A cold hose down was required after being on the river all day. We then went out to explore, changed out bahts for kips and found a chemist shop for paracetamol for Andrew whose had earache for 4 days now – poor love.Went to Pack Luck wine bar a really cool place for a glass of wine each. Later we went out with the group for dinner to a restaurant on the banks of the Mekong river where we ate Mekong river fish and green curry with the yummy Laos sticky rice that I am becoming addicted to. Afterwards we had a wander around the night market which is cool and well worth going to. Retired for the night then as it's been a long day, but this is a very noisy hotel  & no air con. so very hot and not much sleep.
 
 Wed 23rd April
 =
-
 Today we visited the former King's Royal Palace  which was stunning. On the right of the entrance is the King's reception room, where busts of the Lao monarchs are displayed along with two large gilded and lacquered screens, crafted by a local artisan. The room's walls are covered with murals that depict scenes from traditional Lao lifestyles, painted in 1930. Each of the walls is intended to be viewed at a different time of day, depending on the light that enters the windows on one side of the room, which matches the time the day depicted.
 
 In the right front corner room of the Palace, which opens to the outside, is a collection of the palace's most prized art cast of a gold, silver and bronze alloy. This buddha stands apparently 83cm tall and weighs around 50kg. There are rumours that the one on display is a copy as it is said the real one had gold leaf over the eyes and a hole drilled through one of its ankle. Also in the room are another Buddha, engraved with large elephant tusks, and three beautiful embroidered silk screens  said to be crafted by the Queen.
@@ -145,14 +133,12 @@ Later we had smoked duck salad for lunch then went for a walk, we wandered back 
 
 Thu 24th April
 =
-
 A fairly lazy day today as we have a free day, Nick came over and booked a room here too & moved in. Then Andrew, Nick, Peter, Katya and I booked a tuk tuk to the morning market where we bought a dress for Molly and wandered around for a while. Tuk tuk back then lunched  at Cafe Ban Vat Sene in Luang Prabang again, more smoked duck salad – delicious. A siesta followed then another wander around the night market where we bought some shoes for Molly, 3 Laos lamps for us and 2 lovely lampshades for Andrews mum.
 
 We dined with Nick at Apsara, I tried the Goat Tague which was delicious. Then it was time for bed as we are up early tomorrow.
 
 Fri 25th April
 =
-
 I was up at 5.45am to go and watch the buddhist monks begging for alms for breakfast. They walk bare foot around the town and the local people put rice etc. in the alms baskets they all carry, it's something to behold as all the local folks have prepared something for the monks breakfast on a daily basis.
 
 Our group all met up then at the original hotel to go to more hill tribes and visit Kuang Si waterfall. The drive was lovely and we stopped to watch elephants on the way. We spent a while watching an photoing bears as the Bear Sanctuary at Kuang Si was close to the magnificent waterfalls. A really fabulous outing! Later on Andrew and I went to a massage place where I had an amazing steam bag massage and a facial. Andrew had a reflexology foot massage, then both relaxed we had a siesta.
@@ -161,17 +147,14 @@ We dined at a great restaurant James had booked for the group, a barbecue soup p
 
 Sat 26th April
 =
-
 After a breakfast of crepes we packed up and checked out of Apsara hotel, so sad to be leaving Luang Prabang, I really love this place and would happily live here. We were picked up at 11.30am to go to the airport as we fly to Vientiane today. After landing we went to visit some temples, Wat Si Saket then on to Pha That Luang which is all in gold and very pretty. We stayed there for a while and chatted to some monks that Nick got into conversation with.
 
 Patuxai Gate of Triumph was our next stop then we wandered around the gardens nearby and stopped at the Fountain in Vientiane Square. Later we we driven to the Lani Hotel with it's very pretty garden where we are spending our last night in Laos.  After dinner we had a walk around the night market and bought some randam fruit, then took some photos of Vientiane at night before going back to the hotel.
 
 Sun 27th April
 =
-
 It's time for our flight from Wattay International Airport at Vientiane Laos to Bangkok one hour away and spend a last night at the  Viengtai hotel before going home. We had baguettes for lunch at the airport and finished our randams before boarding. After dropping the luggage we went out for a wander down the Khao San road but there were so many crowds that we struggled to move at all so soon went back to the hotel.
 
 Mon 28th April
 =
-
 Flight from Bangkok home was long but fine, good to be home with the cats and as usual when we come home from our hols dinner at Cafe Balti.

@@ -5,10 +5,9 @@ title = "2010 Sri Lanka for our 3rd Wedding Anniversary"
 
 Sun 7th Feb
 =
-
 The intrepid explorers took the night flight to Colombo for our 3rd wedding anniversary holiday.
 
-Wije who was our driver and tour guide for this holiday picked us up at Katunayake Airport in Colombo and drove us to the Wallawwa hotel which is hidden away amongst trees and jungle plantation about 40 minutes from the airport. www.thewallawwa.com
+Wije who was our driver and tour guide for this holiday picked us up at Katunayake Airport in Colombo and drove us to the [Wallawwa hotel](http://www.thewallawwa.com) which is hidden away amongst trees and jungle plantation about 40 minutes from the airport.
 
 We were met by a waiter there with a fresh lime drink and ice cold towels to refresh us after our journey.
 
@@ -18,8 +17,7 @@ Our evening meal there was fabulous, we sat in the lovely outdoor dining area wi
 
 Mon 8th Feb
 =
-
-Wije picked us up the next morning after an early breakfast and we set out to Pinnawala Elephant Orphanage – http://www.elephantorphanage.lk
+Wije picked us up the next morning after an early breakfast and we set out to [Pinnawala Elephant Orphanage](https://en.wikipedia.org/wiki/Pinnawala_Elephant_Orphanage)
 
 This was an amazing experience, when we arrived the elephants were down in the river for their twice daily dip. We spent quite some time with them there, they are used to humans and took bananas very gently from me. They seemed quite happy to let us stroke them and it was lovely watching them playing in the water. After an hour or so the mahouts started herding them up the rocks and through the village back to their orphanage.
 
@@ -35,19 +33,18 @@ The cave temples date back to the 3rd century BC. There are five caves altogethe
 
 It is a bit of a climb as there are over 200 steps but well worth it. Monkeys are everywhere on the way up and as this is a place of pilgrimage they are not intimidated by us. We came out of the last cave in time to see a lovely sunset over the lake.
 
-Wije then took us to Vil Uyana an hotel built over the wetlands and paddy fields just outside Dambulla where we stayed for 2 nights.
+Wije then took us to [Vil Uyana](http://www.viluyana.com) an hotel built over the wetlands and paddy fields just outside Dambulla where we stayed for 2 nights.
 
-http://www.tropicalsky.co.uk/Vil_Uyana-hotel-836.htm  This is an incredibly pretty place our bungalow was really lovely and had one of the largest baths I have ever been in, solid granite which takes some warming up.
+This is an incredibly pretty place our bungalow was really lovely and had one of the largest baths I have ever been in, solid granite which takes some warming up.
 
 The toilet was open plan though, and for me that was a bit much, as I prefer a bit of privacy.
 
 We also found that the bungalow was so dimly lit we could hardly see after the sun set, romantic but not that practical.
 
-The food was very good, but not outstanding like the Wallawwa. They do have a wonderful view of Sigiriya (Lion Rock) which is stunning, we are supposed to be climbing it on Wednesday. I got 16 bites on the first night here,  maybe paddy fields are not the right place to stay if you are allergic to mozzies!
+The food was very good, but not outstanding like the Wallawwa. They do have a wonderful view of Sigiriya (Lion Rock) which is stunning, we are supposed to be climbing it on Wednesday. I got 16 bites on the first night here, maybe paddy fields are not the right place to stay if you are allergic to mozzies!
 
 Tue 9th Feb
 =
-
 After breakfast Wije collected us and we went for an hours elephant safari through the wetlands. Rani was a very sweet natured girl and we bought some fresh figs for her as she was putting her trunk up over her head to be fed, obviously all the tourist buy her fruit. She waded waist deep through the water in the wetlands and stopped to play squirting the water with her trunk for a while.  It is so pretty out there and we saw some fabulously coloured birds including some kingfishers.
 
 After that we drove on to the Ancient Medieval Capital of Polonnaruwa  which was the medieval capital of Sri Lanka from the 11th Century AD. In its time, a 6 km rampart protected the city. The Royal Palace was built in the 11th century, the massive brick walls of the main hall stand amidst the ruins of about 40 inter-connecting rooms. The palace was originally 7 storeys high but since the upper floors were wooden there is no trace of them now.
@@ -62,7 +59,6 @@ We then got taken to the silk factory where we were shown the silk worm cocoons,
 
 Wed 10th Feb
 =
-
 Wije collected us about 10ish enabling us to have a bit of a lie in as we had decided not to get up at 4.30am to climb the 1,200 odd steps up  Sigiriya in 34C heat, it's a long climb to see the ruins at the top. Though having said that I now wish we had as the photos I have seen on the web since returning home look really incredible.
 
 We went to the Sacred Temple of the Tooth and had a wander around – you don't get to see the tooth, just all the daily flower offerings for it.
@@ -85,7 +81,6 @@ The staff were way too over eager, to the point that even although we asked for 
 
 Thu 11th Feb
 =
-
 We visited the Peradeniya or Botanical Gardens which are absolutely superb, wonderful trees, shrubs and flowers including giant bamboos which grow up to a metre per day till they reach around 90 metres high.
 
 There is a pretty half moon shaped garden showing grasses from around the world and a lovely pond shaped as a miniature map of Sri Lanka. I taped the huge fruit bats flying around and couldn't believe how noisy they were, we watched them for quite some time.
