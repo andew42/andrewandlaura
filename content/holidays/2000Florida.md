@@ -1,7 +1,6 @@
 +++
-date = "2000-02-01T07:31:45+01:00"
+date = "2000-02-01T00:00:00+00:00"
 title = "2000 Florida"
-flickerset=72157625817168512
 +++
 
 Tue 1st Feb
@@ -387,3 +386,7 @@ Packed up and sadly left our lovely house and the pool, and our whacky noodle fo
 Got really pissed off at the airport as they messed up our seats and didn't book us in or take luggage till about 8pm.
 
 Not flying Virgin again, although we said that last Feb after San Francisco fiasco!!!
+
+The Pictures
+=
+{{< flickrset 72157625817168512 >}}
