@@ -1,0 +1,134 @@
++++
+date = "2000-05-26T00:00:00+00:00"
+title = "2000 Lundy"
++++
+
+Friday 26th May
+=
+We are off on a Nutters holiday to Lundy Island, our friends accompanying us  are Nina & Jenny with their children Tobias & Jack, Jennifer, Nick & Bernie.
+
+Jenny has just flown back from Peru so Jennifer & Nina will collect her from Heathrow, then drive to Ilfracombe.
+
+Andrew is in London & will be met at Taunton as he can catch the train this far from London. A day full of added complications or what?!
+
+The rest are travelling in 2 cars in convoy, the motorway was a nightmare so Bernie & I decided to go for the scenic route, we reached Andrew first & travelled on to Ilfracombe.
+
+We reached hotel at 11p.m. The J’s & Nina didn't arrive till 2am poor loves.
+
+Saturday 27th May
+=
+We all met up for breakfast & decided to take all the cars to the dock & drop off the luggage, as we have brought extras like wine  & herbs etc. as we are unsure what we will find in the way of shops at Lundy.
+
+The M S Oldenburg leaves on time at 10.30am, we have been warned the crossing will be moderate to rough. Jennifer joins me, on deck, the ferry is rocking & dipping, we smoke & chat as the spray soaks us.
+
+Nick came up to join us announcing that sick bags are being used at a great rate below.
+
+We thanked him for his input and stay put rain & spray not withstanding - at least there is fresh air up here, & Jennifer & I are still perfectly fine, our sea legs are marvellous thank you.
+
+We can see Lundy Island gradually getting larger, & at 1pm we disembark. Lundy meaning Puffin {an island with not a Puffin in sight during our entire stay} has rather a chequered history, but is now owned and run by Landmark Trust, who have restored many of the buildings & made the island habitable again.
+
+There are many lovely buildings which you can rent including the castle and one of the 3 lighthouses. Lundy has a pub, The Marisco Tavern & a shop, we set up accounts at both, you just settle up before leaving.
+
+Lundy has no roads, land rovers go up the rough tracks from the man made harbour to the village 140 metres above us. The rhododendrons are in bloom and look quite spectacular as we drive up the hill, the sun has appeared and the sea is sparkling far below us.
+
+Our accommodation The Quarters is one of the most basic on the island - this place was built to accommodate the people who came to restore the original properties in the 70's. It consists of a huge kitchen, very large sitting cum dining room with plenty of seating is next.
+
+There is a bathroom next to that then another door leading out to the back, where we discover the bedrooms & shower rooms etc. are in a similar building behind. Yes this means we have to go outside to go to bed at night from the living areas.
+
+Our quarters are between the shop & the pub, less than 5 minutes walk for either, not bad planning - we could be at the Admiralty Lookout which is 3 miles away.
+
+We adjourned to the pub for dinner & some of the  3 local ales which used to be brewed on the island, Old Light, Experience & Smooth, We chatted to Cliff the barman about the merits of the beers etc. I think we are all going to enjoy a week of doing nothing much on an island.
+
+Sunday 28th May
+=
+We chose the end bedroom which was a mistake as it adjoins the shower block and toilets used by all the campers - noisy!
+
+Nina, Bernie, Nick & the children have gone for an early walk to the beach. We visited the  sweet Vietnamese pot bellied pigs in the field opposite us. As we walked farther we found a little pond with a mother duck and her 13 ducklings, they are so sweet, we lingered for a while watching them.
+
+Went to the shop to get the fresh ingredients I needed for tonight's dinner as I have volunteered to cook. The shop sells a plethora of stuff from all the usual foodstuff and cleaning bits to cuddly toys, Lundy sweatshirts, &  their own Lundy postage stamps.
+
+I cooked my vegetarian curry which is loaded with cream & coconut. We ate it with a glass of wine, then headed for the pub for some beer. Later we settled down again for a game of Scruples, all but Jenny and Bernie who are playing with Jenny's highly impressive telescope and are disgusted at our lying to each other as we all try to win, a brilliant evening of fun and laughter!
+
+Monday 29th May
+=
+After breakfast Andrew and I decided to join Jennifer, Jenny, Nick & Jack for a walk to the east side of the island, I am hoping to see some of the Lundy ponies as there's a herd living here. Walked a fair way chatting and enjoying the island. We discovered a ruined cottage called Quarter wall Cottage where we sheltered huddled together in the ruins as the heavens opened again.
+
+Jennifer and I walked on ahead and found a very peculiar bird trap, it is apparently used for monitoring the bird population here. There is an open wire netting funnel on one end and a wooden box to trap the bird on the other, with a window for observing.
+
+Seen no ponies today unfortunately, it's time to head back as we have discovered that we can take a boat trip around the island and have arranged it for this afternoon. They bring supplies to the island twice a week from Clovelly. Andrew, Jennifer, Tobias, Bernie, Nick & I decided to go for the trip.
+
+Today is fairly calm and we are really looking forward to seeing the island from the sea. The boat is called the Jessica Hettie and there are a few more holiday folk joining us for the ride. Soon after we set out we could see the heads of 6 little seals bobbing near the boat, they look like they are smiling at us - so sweet!
+
+The boat was bouncing a bit, but nothing like the journey over. We got a really good view of the Devil's Slide it is 400 feet of sheer granite and is Lundy's  best known rock face. Several people were climbing it, not my scene, but it's quite spectacular.
+
+Our hour's trip was soon over, we all enjoyed it very much and have observed a few places from the sea that will be interesting to explore on our walks.
+
+We repair to the pub to order some chips to go with the leftover curry & a few beers while we wait. Then home for dinner and another great evening of wine & Scruples....
+
+Tuesday 30th May
+=
+We plan to walk the six miles round trip to the northern point of the island today & packed a picnic.
+
+Andrew & I took the track up the middle of the island as the lady in the shop told me that the ponies were seen there early this morning by the farming lads. We found them about halfway across the island, they are really friendly, the bay in the photo is really naughty and is into nudging you fairly hard if you stop paying him attention. There are 2 pregnant ponies here a grey and another bay. We watch them all and fuss the bay who is beginning to be a nuisance, all of a sudden there is a tremendous noise as a helicopter flies low across the island, the ponies take fright and stampede. They are heading towards the far side of the island and I am concerned about the pregnant mares as they all look so terrified.
+
+We continued our walk passing the Admiralty Lookout {it does look cosy, but is so isolated] Eventually we reached the other side of the island & sat down to eat lunch with the sea and the lighthouse in front of us, not a bad spot for a picnic. Bernie, Jennifer, Jack & Nick followed the east coast route. They explored the old hospital ruins and saw some seals bobbing around. They joined us at the top.
+
+Jack is turning over every rock in the vicinity looking for insects & beasties, Nick goes to help while Jennifer and I light up again and just enjoy the view. From here at the top of the cliff we can see Milford haven docks, bringing back memories of the West Blockhouse near there, another Landmark Trust place we have stayed at.
+
+Andrew and Jack descended the cliff path to the beach to explore and found some more seals only about 10 feet out, now I wish I'd gone with them.  Nick & Bernie went to the lighthouse to observe solar panels.  Jennifer & I lie and relax in the sun.
+
+When the others rejoined us we started to make tracks for base, we found the ponies up by the lookout & also wandered round the hospital ruins. The rhododendrons are ablaze in the sunshine - huge clumps of them are scattered on all the rock faces.
+
+As we reached base Jenny & Bernie are fiddling with their radio stuff setting up a station so they can chat to friends, Nick goes off to help. For those of us who are not  radio hams there is a wonderful sunset to watch, then a nice warm pub for dinner and beer.
+
+Back to base to play Scruples & drink a bit more wine it's amazing how much more fun you can have when you have to make your own entertainment, instead of sitting in front of the box!
+
+Wednesday 31st May
+=
+Andrew and I decided to go for a walk, we found Jack chatting to the sheep he's adopted, he has been warned not to go near the "mixy bunnies"  so Eyam is the next best thing. How does an 11 year old know about the plague village in Derbyshire?
+
+We walked in the opposite direction from yesterday & found the church which seems to have been abandoned to the sheep, which are happily eating the grass in the churchyard.
+
+We entered the church, there are strange pictures in here and someone has made a game with boxes that you have to feel inside with your eyes shut & identify the objects.
+
+We wandered on coming to the "Old Light" lighthouse on the west side of the island, this was not used after completion, as it was built too high up and it's light was usually hidden in the clouds. It is in good condition though and has 2 cottages built on to the side of it which are for rent.
+
+People are allowed to go and explore inside so we went in and found a wonderful spiral staircase, we started climbing. Every so often Andrew stopped to take photo's, it is fairly steep. There are several holes in the floor where you can see straight through to the bottom. At the top there are windows all around and a door that you can go out of on to the balcony that circles the top, so we went out for a look.
+
+It was extremely windy but the view was amazing, a little cemetery was below in one of the fields surrounding the church, which we had not seen at ground level. The sea was breathtakingly lovely in the sun, the ponies were in view about halfway across the island again.  Back inside in the centre {a jump across from the edge to middle where the light would have been} there were 2 deck chairs set up. Andrew leapt over and settled in one, I wimped out at that point, and sat by the window instead.
+
+We headed up towards the Castle next - the only way to visit it is to rent it. It's a formidable building and has lovely views of the sea. Back at the Quarters we heard that Nina, Jenny, Jennifer, Bernie & Tobias had walked to the Lighthouse that we visited yesterday on the other side of the island. Nina dived in for a swim. and was playing with the seals – cool!
+
+Bernie was swept off of his rock by a large wave, and can't swim, so Jenny had dived in to rescue him  Both of them had nasty scraped knees from the jagged rocks, but were otherwise fine, Jenny is the hero of the day!
+
+We all went to the pub for dinner, I asked Cliff why we haven't seen any Puffin here, apparently there are only around 60 breeding pairs of Puffins left – so sad.....
+
+Thursday 1st June
+=
+Woke up to the rain beating down, got up to find Jennifer & Bernie about to go to the pub for a fry up so I joined them – it was excellent, should have tried this earlier on in the week. It is so foggy that we couldn't even see the field across from us.
+
+This sets the course for the day, we lazed around reading etc. Pub again for lunch, and a few beers. The rain was torrential all day.
+
+Nick taught Toby & Jack to play Rummy, and the 3 of them end up rough & tumbling down on the wooden floor WWF style.
+
+Another meal & beer there is always a good atmosphere at the pub, the staff there live on the island permanently & turn their hands to any job, they all seem to enjoy working on the island. Our usual evening of drinking & games - will we all be alcoholic card sharps on leaving Lundy?
+
+Friday 2nd June
+=
+It's persisting down again today. I joined Jennifer & Bernie for breakfast and discover that it is Bernie's birthday. Jenny decided that she will cook a special dinner and we ask Cliff if the kitchen staff can rustle up a birthday cake.
+
+Today was spent much as yesterday with the exception of dinner of course, Jenny's veggie dinner was good, we enjoyed it then repaired to the pub for Bernie's birthday cake, a cherry cake decorated with icing and a candle. It was rather undercooked and soggy but we all ate some. Scruples followed of course.
+
+Saturday 3rd June
+=
+Sadly we are leaving today so are all up early to pack & clean up.
+
+Our luggage got collected by tractor & taken to the boat, so there is nothing to carry but my handbag, now that's what I call service. We are tidied & out of the Quarters by 10am.
+
+H M Oldenburg doesn't leave till 3.30pm as it brings day passengers too, so there's nothing for it but the pub as it's raining & misty again. We ate a last meal there & settle the bills for the shop & pub - we all agreed that it was surprisingly cheap.
+
+Jack says farewell to Eyam the sheep & the pot bellied pigs. As we walked down to the harbour the mist & rain have cleared and the sun is shining again, it's a beautiful afternoon, perhaps it will be a more tranquil trip home?
+
+We set sail at 4.30pm the return journey was uneventful thankfully. We docked at Bideford about 6pm and take the arranged coach back to Ilfracombe to pick up our cars, arriving there at 7.30pm. A real pain docking in a different place as we still have the drive home. We hug all the Cambridge guys goodbye & set off.
+
+Stopped off at Tiverton where the Golden Panda Chinese restaurant fed us plenty of wonderful food - it is located in Newport St. We then drove straight home on a quiet motorway and reached home at  1.30am. It's been a really good holiday, lots of fun, wonderful friends, silly games, plenty of walking and wine & beer, we haven't missed TV, papers or phones at all.

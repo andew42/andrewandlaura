@@ -1,0 +1,96 @@
++++
+date = "2005-06-30T00:00:00+00:00"
+title = "2005 Prague"
++++
+
+Thursday 30th June
+=
+I didn’t know where we were going till we checked in for our flight which took 2 hours giving me a chance to read the Prague guide book Andrew had bought for us & decide which parts we really wanted to explore. I love these surprise holidays.
+
+Andrew had booked us a taxi to pick us up at the airport to take us to the hotel. We will stay at the Arcotel Teatrino a lovely Art Deco Hotel which used to be a cinema. The lounge, bar and dining room are in what was the cinema seating area, with a dining gallery in the upper circle too. Our suite has a lovely art deco headboard and the lighting is all in art deco style.
+
+On arrival we found that there was a Travesti evening on at the hotel tonight and a Jazz night on Friday. We discovered that it was a transvestite show, with dinner included. We booked a table in the gallery as we thought that this would be a fun way to spend the evening.
+
+We went out to explore this stunning city, still raining but warm and humid, a twenty minute walk took us to the centre of Prague. We went to Celnice for a late lunch, salad for me and Andrew tried the goulash with knedliky dumplings, both delicious. Shared the best banoffee pie we’ve ever tasted, the banana salsa was diced banana with sour cream and cinnamon and went so well with the sweet caramel. I tried the famous Velkopopovicky Kozel beer (one of the finest in the world according to our guide book) yummy if you like Trappiste Roquefort or Old Peculiar type dark rich ales.
+
+Replete we decided to stroll further & found the old town square which is full of exquisite, stunning buildings.
+
+The Jan Hus Memorial sits in the centre apparently a former rector he was burned at the stake on 6th July 1415 for proposing radical church reform. This date is now a national holiday in Prague.
+
+The Church of Our Lady Before Tyne is a 14th century Gothic church with incredible spires, it is straight out of a fairytale and my favourite building in the square.
+
+The Old Town Hall sits opposite the church and was originally built in 1338, the tower was added in 1364 it’s astronomical clock looks stunning. When it strikes the hour little people come out of the doors at the top and dance, a cock crows then the bells chime the hour.
+
+The whole square contains the most exquisite buildings, we spent time there every day.
+
+There are little market stalls nearby where we bought some pretty candles. We sat at a cafe for a drink and watched the world go by, then found a taxi to take us back to the hotel as it’s raining again.
+
+Andrew rang down for coffee while we freshened up, to be answered with “Coffee, why not? come down and fetch a pot” - he did as he was told.
+
+Later we went to find the bar 7 sat with our evening entertainers all made up and ready to perform. We had a Mojito cocktail then were taken upstairs to the gallery for a dinner of potato soup, pork medallions & fresh fruit salad in a toffee basket, all very good with a bottle of local Frankonova wine, while we watched the show.
+
+It was fun, if a bit loud, from Marilyn Munroe through Grease & Dirty Dancing to Marie Antoinette & the dance of the seven veils. Another Mojito in the bar and we were ready for bed....
+
+Friday 1st July
+=
+Breakfasted at the hotel then walked into town, it’s raining again. A torrential downpour has us scuttling into the nearest place, Jindrisska is a Turkish restaurant so we ordered large glasses of Turkish coffee & waited till the rain became a drizzle again. Popped across the road to buy a brolly & continued walking.
+
+It was lovely by the river until the heavens open again, within minutes the cars were in water halfway up their wheels and we were in danger of a thorough drenching per car. We took shelter again, soaked through this time but not cold. A brisk walk over the bridge and we headed for the Cantina, supposed to be the best Mexican restaurant in Prague, and were seated with some mulled wine and beer to drip dry whist sharing amazingly good steak, chicken, banana and coconut fajitas followed by an awesome chocolate coconut cake.
+
+Walked up to the castle, full of mulled wine & singing in the rain, thinking that we may dry out exploring indoors for a while.
+
+The Castle of Prague is one of the largest fortresses in the world, it was founded in the 9th century and is a combination of Romanesque, Gothic, Renaissance and Baroque. It’s walls contain St. Vitus Cathedral, the Royal Palace, St. George’s Basilica, Lobkowitz Palace, the Chapel of the Holy Rood, the Castle Gallery, the Southern Gardens and Golden Lane.
+
+We paid our fee and decided to visit the cathedral first, it is very beautiful with stunning stained glass windows, we wandered around taking in the amazing architecture, wonderful ceilings, windows and Gothic ornamentation.
+
+We climbed all 287 steps of the tower to look at the lovely views of Prague. Walked back down and headed for the Royal Palace which was closed!
+
+Made our way down the expensive little craft shops that form the restored Golden Lane, 16th century “hovels of the poor.”
+
+These are charming little cottages where Frank Kafka used to write. Walked through the Royal Gardens and the Gardens on the Ramparts and out to the city again as the whole castle area is closed now. We stopped at Pod Veso cafe for coffee.
+
+Walked over the lovely 14th century Charles Bridge with it’s many statues of saints added to the bridge between 1706 and 1714. Today there are little stalls selling paintings, jewellery, puppets etc. all along the bridge. Also people playing some excellent jazz, and further down opera arias and the beggars praying for crowns.
+
+We wend our way back through the old town and decided to eat at Celnice again. Steak for Andrew and a Czech platter for me, we couldn’t get through it all. We went back to the hotel for a hot bath, then had a Mojito in the bar and listened to the end of the jazz act before bed.
+
+Saturday 2nd July
+=
+We are up and the sun is out, but we’re not silly, so armed with our brollies we set off to Cafe Obecni dum for breakfast, this is the cafe attached to the Municipal House where concerts are held regularly. It’s a stunning Art Nouveau building with the cafe to one side and an evening only restaurant on the other. We sat in all the nouveau splendour, chandeliers twinkling, fountain tinkling, gold everywhere you look and ate breakfast.
+
+Saw the prettiest railway station ever on the way, I want to take it home and have it as an orangery in our garden.
+
+Then we walked down through the old town and over Charles Bridge where we stopped to buy two lovely pairs of copper and enamel earrings for me. On up to the funicular which we’d seen yesterday opposite the Cantina.
+
+The funicular is the easy route up to Petrin Hill which is 300 metres above sea level. This area was once a vineyard back in the 15th century, but has been a public park since 1825. Apparently early chronicles say that it was the site of pagan rituals to the god Perun and believers still practise ancient rites here on 1st May each year.
+
+Today it is a stunning park with forests and orchards and beautiful rose gardens. We queued for the funicular as there is a wedding party going up.
+
+At the top there are horses or a horse & carriage you can hire to explore the area. We walked through the lovely rose garden to the Eiffelovka, Petrin’s observation tower, built in 1891 for the Jubilee Exposition. This stands 63.5 metres high and is a quarter of the size of the Eiffel tower in Paris on which it is modelled. A climb of 299 steps leads to the viewing platform, yes we did climb it, as there are stunning views over all of Prague. What is it with us lately that we have to climb as high as we can get, even when we are 1,000 feet above sea level already? Lots of pix taken of course.
+
+I am on a mission to find the Church of St. Michael a lovely little wooden church with three spires which was built in 1410 and moved up here when the Ukraine valley it stood in was flooded by a dammed river. We walked for miles around this gorgeous park, up hill and down dale and eventually located it.
+
+It is a fantastic little church, reminiscent of the wooden churches in Norway, but much more intricate in design, well worth the search, but closed and padlocked and much in need of restoration. I do hope they don’t let it just fall to pieces, we stayed for a while in the peace and quiet of it’s presence and took pix of course.
+
+We continued down and eventually out of the park and walked by the river till we came to a nice little boat restaurant Cervina Sedma where we stopped for lunch overlooking Vitava river.
+
+There's a great view of the National Theatre and a strange modern building in glass which is shaped like half an egg timer. Carried on up the riverside till we reached Pod Veso where we stopped for coffee and pudding.
+
+Under Charles Bridge we found a place doing 50 minute boat trips so went on the next boat, a nice relaxing trip with lovely views of the buildings from the water.
+
+Back on land we returned over the bridge to the old town and watched the gorgeous Astronomical clock do it’s six o’clock dancing, cock crowing and chiming thing. Wandered around the shops and sat in the square for a drink then went back over the bridge and round and under it to a little cafe we’d noticed earlier for dinner. Both had goulash, dumplings and apple cake – yummy.
+
+Walked back over Charles bridge for umpteenth time today, this time in the dark and Andrew took photo’s of the castle all illuminated and looking stunning.
+
+Walked all the way back to the hotel tonight too, and collapsed into bed.....
+
+Sunday 3rd July
+=
+Our last day already, Andrew went for breakfast while I packed, he brought me a pot {why not?} of coffee back. We stored the cases at reception and went out into the glorious sunshine.
+
+Decided to walk down to the Old Jewish Cemetery today. The cemetery dates back to 1439 and apparently was in use up till 1787, the graves were just layered on top of one another once it was full. When we got there we discovered that you have to pay a hefty price to enter which includes visiting about six other places so we decided against it and walked on.
+
+Found more exquisite buildings down little back streets, bought me a really lovely painting of Prague, it will be my birthday present from Grahame as he told me to buy something whilst here. All to soon it was time to find lunch, we decided to try Red Fish, supposedly the best sushi in Prague, it certainly lived up to it’s reputation, we had excellent sushi, sashimi and sake there.
+
+Walked back to the hotel stopping in for a last drink at Celnice, then it was time for a taxi to the airport for our flight back. Motorway jammed up so took alternative route home and went for a curry at Cafe Balti then home to bed.
+
+Would recommend Prague to everyone, we loved it and would go back tomorrow.
