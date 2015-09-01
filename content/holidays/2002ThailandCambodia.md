@@ -1,0 +1,520 @@
++++
+date = "2002-03-13T00:00:00+00:00"
+title = "2002 Thailand and Cambodia"
++++
+
+Wednesday 13th March
+=
+Nick kindly took us to the airport at about 7pm. Checked in and found a really good Sushi Bar for dinner. Can't wait to get there, this is our first back packing holiday, there will be none of the usual 5* hotels and all comforts this time, it's back to basics!
+
+We’re going on a tour of Thailand & Cambodia with Gecko Travel. We'll meet Wi our tour guide and the other 4 people in Bangkok on Saturday. Gecko deal in small tours, 4 min & 8 max.
+
+I have never been on a holiday with strangers before, with Gecko we will be together all the time, I hope we all get on. When the tour finishes at Koh Chang, Andrew & I will stay on for an extra 12 days then fly to Bangkok for 4 days for Thailand New Year celebrations.
+
+Thursday 14th March
+=
+Landed at Bangkok at 4.29pm their time, both totally wiped out as couldn't sleep on plane. We checked in at Viengtai Hotel, & decided to explore after freshening up & maybe find dinner too.
+
+Double take as lift opens to reveal our friends Matt & Anna - total incredulity as I stand gaping next to Matt, I'd read their latest e-mail from Vancouver just 2 days ago. I nudged Andrew, as true to form he hadn't even noticed them, Matt is looking just as confused as I. It really is them, how surreal to meet in a service lift {not even the main public lift} in an hotel in Bangkok, this must be the most amazing coincidence ever.
+
+We exclaimed & chatted & of course, ate together. We stayed in the hotel restaurant chatting till we were almost thrown out. Matt & Anna had been on tour around the world for 8 months, so loads to catch up on. Had a really brilliant evening eating, drinking beer and chatting none stop. Matt said later he should have said "Of all the lifts in all the world, you have to walk into mine!"
+
+Friday 15th March
+=
+We met up with Matt & Anna for breakfast, then having arranged to have dinner later we went off to explore.
+
+Bangkok is on first impressions dirty, mega hot & so exotic. We visited the Golden Buddha and gave him offerings of lotus flowers and incense. Any Buddha's we visited had people with flowers, incense and candles beside them, I think we would have truly offended them if we refused to take the offerings to give to their Buddha. We were shown how to have our fortunes read by shaking sticks, both had stick 12 drop out so had identical fortunes. We just wandered & looked, soaking up the atmosphere there, but 3pm saw us exhausted so we headed back for a siesta.
+
+Met up with Matt & Anna at 7.30pm and spent a few more happy hours chatting and hearing some of their adventures, they leave for Singapore in the morning so we won't see them till we are all home again. We went back out for a stroll before bed as Matt  & Anna still have to pack etc.
+
+Saturday 16th March
+=
+Went out and walked for a while, there are street markets everywhere. Decided to take a Tuk Tuk {a modern day version of a rickshaw with a motorbike front} rather than taxi as they looked more fun.
+
+We headed for the Grand Palace an amazing place - a plethora of buildings each more glitzy and spectacular than the last. Hollywood has nothing on this, almost every building is in gold and mosaic. We visited the Emerald Buddha who had three different jackets, one for each season. He was much smaller than we thought he'd be and is in jade not emerald, I was very taken with him though, and bought three postcards of him, one in each jacket. Walked miles around the Grand Palace complex, found a shop selling delectable sorbets lime & passion fruit - yummy.
+
+As we left we were approached by a man intent on us taking a boat trip down the Chao Phraya River, and another who was desperately trying to sell me a bamboo parasol. We agreed on a price for the boat and went for it, it's was cooler on the water and the long tail boat was very pretty. The parasol man followed us to the boat where we eventually bought one so he didn't get on the boat too.
+
+It's fascinating that the grand houses and shabby little dwellings are side by side, even the river side huts with no front walls had a television, the reality of living in Bangkok. Our boatman stopped at the Buddha's Royal Barge Museum, we clambered out to explore. These  barges are only used for special ceremonies now and are breathtakingly beautiful, and very well preserved, with such detail at the front and all inlaid with gold and precious gems. This was one of the places I wanted to see, and wouldn't have missed it for anything. We toured the river for about an hour, stopping alongside another boat with a lady selling souvenirs and cold drinks. We bought a really cool hat and 3 beers. Our boatman dropped us of at a market where we browsed for a while, then found another Tuk Tuk to take us to the hotel to freshen up and go to meet Wi and the others on the  tour - Jon, Pete, Amir & Glenn. We went out to Tuptim's for dinner and  beer, chatted a fair bit. Discovered that Jon & Amir both work for UBS where Andrew used to work. Early to bed as we are up at 4.45am to catch our flight to Cambodia.
+
+Sunday 17th March
+=
+Boarded a happy fishy plane and had excellent breakfast en route to Phnom Penh, Cambodia's capital. If  the Thai's can produce really good airplane food why can't any other airline?
+
+We arrived in Cambodia at 8.05am a people carrier collected us and dropped us at the Golden Gate Hotel - home for the next 2 nights. The main mode of transport here are very old motorbikes. The ladies ride side saddle & held bags of shopping plus the babies. Sacks of rice etc. were slung across fronts of bikes & children sat in front of the driver with the rest of the family behind!
+
+Wi had reserved a table for lunch & ordered our food and water in advance. We could order and pay for any alcohol we wanted and the rest is all done for us.
+
+After lunch we were guided around the Palace buildings & temples by Pohn our guide for Phnom Penh. The Silver Temple has a solid silver tiled floor {each tile weighs 1k} it’s vast & very ornate.
+
+The Golden Buddha was solid gold set with diamonds and had a beautiful serene face. The story of this Buddha is that he was born from his mother's rib, and walked 7 steps on birth, each of his footprints turned into a flower, and so the lotus blossom was created.
+
+Pohn is a good tour guide and had a great sense of humour, he chatted to us while he  drove and answered any questions we asked on the history of Cambodia.
+
+We drove back through a Carnival and I was blown a kiss by a boy of around 4 years old!
+
+We met and ate at the same place as last night, drank beer and chatted about our days events.
+
+Monday 18th March
+=
+We were out by 9am headed for the National Museum where Pohn took us around and explained the history of the statues and the Post Angkorean Buddha's there, lots of  statues of Ganesha. The building was gorgeous pink sandstone with lovely gardens and a pond with amazing huge water lilies.
+
+From there we travelled to the Russian market where we arranged to meet up in a couple of hours having browsed at our own pace. We bought a couple of pairs of trousers for Andrew, trousers, shirt 7 kaftan for me. Haggled for a lovely turquoise pendant, a silver elephant box, and a silver hair clip. Then back to the hotel for lunch.
+
+In the afternoon we went to the Genocide Museum, it was even more horrific than I imagined, Pohn {in his mid 30's} remembered it all too clearly.
+
+This museum is the former S21 prison, you can still see the blood stains on the tiles. There are photographs of the killing fields and of the cremation of the skulls found in the fields years later. Photo's of people before and after torture, some of the torture instruments are still there with descriptions and pictures of how they were used. Pictures and paintings done by survivors show the terrible decimation of the Cambodian people. There is still a bust of Pol Pot there.
+
+Upstairs the prison cells were so small that Andrew couldn't lie down in one. The women were put in cells with wooden doors. I walked around on my own for a while trying to take in the fact that this only happened in the 70's, how can such atrocities still be allowed to happen in our world?
+
+The Cambodians are still trying desperately to recover, and yet are all such friendly people, so pleased to see you and eager to help in any way they can. Pohn says that they just have to live for today, if they try to bring those of the Khmer Rouge still free to justice it would cause war again.
+
+I feel ashamed that I didn't know the half of their suffering, it's too easy not to think closely about things because we live so far away.
+
+We decided that we all needed a drink & a lightening of mood so Pohn took us to the Elephant Bar of the Royal Hotel which is owned by Raffles. One of my dreams is to have a Singapore Sling in Raffles - maybe this is close enough? It's happy hour  2 drinks for 1 - we indulged! Rounds of various beers & cocktails were ordered as we sat in the hushed and quite stately room. Singapore Sling & the Elephant bar special, delectable mixture of rum, coconut, passion fruit, crème de bananes and lime served in an elephant goblet.
+
+On our way back to the hotel I asked Pohn about the lovely Monument we passed en route. It is a stunning red stone edifice set in the Jardin Publique. It was build by the people to commemorate peace in Cambodia. When we passed it later in the evening it was floodlit in red and purple and looked even more beautiful.
+
+We went to the usual cafe for dinner, followed by a stroll to a couple of bars for some more cocktails. We are all comfortable together now and chatted in various groups till 11pm.
+
+Jon & I have spent a fair amount of time talking and get on really well, I found him so interesting to chat to, he had been to so many places and lived in many countries already.
+
+Tuesday 19th March
+=
+We were up at 5.30am & out by 6.10am to the boat, which took us down river and across Ton le Sap Lake, the largest in Cambodia. We got grounded on a sand bank part way across the lake,  resumed our journey 25 minutes later after lots of revving and weaving wildly to one side on several occasions, till the crew jumped in to free her. At 1.20pm it was time to transfer to a smaller boat to go further up river to Siem Reap.
+
+We travelled up what smelled & looked like a sewer with dead fish floating on the surface. The men were in stitches laughing as I videoed unaware of a larger boat approaching and almost fell backwards overboard as the wake from it hit us. Wi grabbed me saving the camera & I from disease and corrosion.
+
+At journeys end we clambered across to land and walked to the minibus through more dead fish. A roller coaster drive with Po Lee, our driver & Fin our guide for Siem Reap followed, as the road had been washed away by floods, we arrived safely at Bakong Hotel about 2pm. time for a quick shower then late lunch.
+
+In our bedroom  a strangely familiar smell assailed our nostrils - Dead Fish - Oh No! A scout around revealed that our boots and all luggage needed a good hose down!
+
+At 4pm we set off to visit our first temple, Ta Pronm is vast and lovely, straight out of Raiders of the Lost Ark. We walked around the ruins for over 2 hours, this place had a wonderful atmosphere. Trees had grown into the ruins and they balanced precariously on top with their roots streaming down and around the walls.
+
+We saw some peach faced love birds in the Kapok trees, lovely to see them in their natural habitat, Wi lent me her binoculars to bird watch.
+
+Back at base I asked one of the tiny girls at reception if we could have some hangers for clothes as we are to stay here for 5 days & there is not even a drawer in the room. She seemed confused but said she would come up soon and indicated to me to wait in our room for her. We have a Gecko living in our bedroom here, he is only about 3" long and very cute, he ran into one of Andrew's socks earlier and had to be shooed out so the laundry could be done. 10 minutes later our girl knocked, Andrew opened the door and 4 tiny girls struggled in carrying a small wardrobe for us. They set up the wardrobe, giggling & bowed their way out of the room.
+
+Strange prioritisation that we had  a TV, a fridge full of beer & water, but no lamp or wardrobe.
+
+Dinner was at 7.30pm so we set off to the Soup Dragon - really excellent dinner - my favourite place so far. Wi pointed out that she hadn't order any fish, we all agreed that this was an excellent idea. We ordered beer then tried their special lime daiquiri's later.
+
+Regaled the lads with our story about the wardrobe, & retired to bed about 10pm but had a dreadful night - air con. was not working, traffic noise was dreadful and the bar across the road sounded like it had an Indian snake charmer whistling at top volume!
+
+Wednesday 20th March
+=
+Crawled down for coffee at 6am. & requested a quieter room too! Jonathan ordered a glass of cold milk, his face was a picture when he tasted it - hot milk with some ice to cool it back down, priceless, we all laughed so much. Wi told  us that it was 47C yesterday - no wonder we felt so hot.
+
+Po Lee arrived and we set off to visit some more Wat's before the sun got too hot.
+
+1st Wat - Sra Srang was a very small pretty temple built on the side of a man made lake. The scenery there was very beautiful. Andrew bought me a locally made purple sun hat which turns into a fan.
+
+2nd Wat  - Pre Rup was larger and again absolutely gorgeous. This temple was high with a large platform area on top with lovely views all around.
+
+3rd Wat - East Mebon which was guarded by elephants 4 at each corner of each quarter of the temple. This was one of the larger temples and again had wonderful scenery. The old stones there had numbers on them - architects were trying to rebuild the temples - must be the largest jigsaw puzzle in the world.
+
+4th Wat - Ta Pronm was a much smaller temple with a tree growing straight out of the top, which was a Buddha's head.
+
+5th Wat - Neak Pean was our last temple of that outing - a small graceful temple with a central square lake with 4 smaller square lakes on each side.
+
+We headed back to the hotel, on our way we saw a pig on the back of a motor bike on a sort of hammock, it was strapped on flat on it's back with it's little legs waving.
+
+We had lunch then discovered that they had swapped our room for a quiet one at the back of hotel, this one has a built in wardrobe, TV & fridge, but the shower doesn't work, they had moved us while we were out, having just redecorated it - Yes Really - we open the windows & French doors to let the smell of paint out. Went out shopping as Pete needed an ice cream, which most of us agreed was an excellent idea. Andrew bought me a pair of lovely elephant trousers.
+
+6th Wat & last today is Phnom Bakheng which we climbed to watch the sunset. The hill up to the temple was incredibly steep, but you could have a 20 minute elephant ride, which we all opted for. It was brilliant fun, I took some wonderful film of Angkor Wat which was spread out below us. Took a photo of our elephant too, he was really cute with black fuzz on his head.
+
+The whole temple area was packed with people, there was a large group of children on a camping ceremony {all in turquoise T shirts} who lined the walls at the top and were singing.
+
+The atmosphere was wonderfully warm & happy and the sunset was lovely too.
+
+A mega steep run cum slide back down hill followed. Back to hotel to shower and change then out to "Dead Fish" { Phuket means dead fish} for dinner  - which was good. The Red Piano for cocktails later was even better, but early to bed as tomorrow we finally get to see Angkor Wat.
+
+Thursday 21st March
+=
+Po Lee collected us and we arrived at Angkor Wat at 6am in time to watch the sun rising from behind the temple, this is the location where Tomb Raider was filmed. We sat by the waters edge in silence watching in awe as the huge red ball slowly appeared from behind the largest and most magnificent temple in the world. Such an incredibly breathtaking sight, it was almost spiritual.
+
+We breakfasted at one of the cafes back down the road, then set off to explore.
+
+On our walk back we were behind the Buddhist Monk's residence, I ask Fin what the large domed blocks in their grounds are. They are called Stupas and are sacred burial mounds.
+
+Angkor Wat was the most famous and least damaged of all the temples here. The walled area is over 2 miles long and the entire area is surrounded by a moat. As we walked across the bridge, which is lined with ancient statues, towards it, we noticed people in the river. Fin told us they are clearing the moss from the water. They collected it in large containers and all seemed to be thoroughly enjoying this strange occupation and were laughing and chatting as they worked.
+
+Angkor Wat has a large tower in each corner and a huge central tower. We wandered round exploring for a couple of hours. The long corridors were all lined with carvings all telling stories, in some areas the stones had a polished look turning them black and red. This effect  was caused by people touching the walls over the years. There are statues of the ancient Kings and Buddha's everywhere.  Back at the parking area there were always people waiting to sell their wares, and often people following you around determined not to leave you till you buy something from them. Back once more to the hotel for lunch then resumed our tour at 2.30pm.
+
+We approached the Bayon Wat and it's Palace from the South Gate where we all  got out to walk up to the Gate with it's two massive 3 headed elephants guarding the gateway.
+
+Pete and Glenn stopped to buy a pointed straw hat each, they both look really cute in them.
+
+The walls surrounding this whole area were covered in carvings depicting monkeys, ancient tribes and nose to tail elephants. This is the one that Andrew and I both think is the loveliest of them all, we had passed it a few times and have been looking forward to seeing it close up. This place is wonderful, it has a peacefulness and tranquillity beyond the other temples, I could sit here for days just soaking up the atmosphere. We explored the whole area, bricks are being numbered here too, the restoration has begun already. I took some vid. of them working, apparently they should finish restoration in 2005. I need to come back, there are pictures of what this Wat looked like before it was desecrated and I really must see it.
+
+Andrew and I walked across to the huge Buddha alongside the temple, I'd wanted a closer look at him too, I love the serene beautiful faces of these Buddha's. I offered him some incense that one of the monks handed me and sit for a while with him.
+
+We joined the others at the palace ruins for a walk around. Then on the way back spotted a group of monkeys and asked Po Lee to stop. We all got out and watched them, two of them had tiny babies, they were totally unafraid of us and we watched some people feeding them lychees which they peeled and ate with astonishing speed. One of them was jumping up trying to grab Fin's mobile phone, a lovely little interlude.
+
+Cambodia has relatively few tourist so far, we are both so glad that we came here now while it is still peaceful and the wildlife is unafraid. You can climb up to explore all the temples. In a few years time people probably won't be allowed the freedom we have enjoyed.
+
+Took vid. on the way back of 2 pigs on a motorbike, now there's something you don't see too often! Some people put leaves over their pigs to stop them getting sun burned tummies on the way home from market.
+
+We went to a Chinese restaurant tonight, a really good meal - yummy dumplings. Headed for Angkor What? a bar the lads found yesterday, excellent cocktails and chasers too, it's run by a nice Aussie from Perth. Jon and I chatted all evening as we tried most of the cocktails on the menu!
+
+Friday 22nd March
+=
+Set off at 8am in minibus for our last temple tour day, this was the hottest day yet.
+
+We are heading to Banteay Srei Wat which is 35 kilometres from Siem Reap, but first we are going further away to visit a waterfall a 45 minute trek through the jungle. This is a special waterfall that is supposed to wash your sins away. I decided it was too steep for me to climb & after persuading Andrew that I would be fine he carried on with the rest of the group. I descended at my own speed. Po Lee came over to see if I was OK, lead me to a table and ordered a large coconut for me to drink. Later he had it cut in half so that I could eat it. We chatted about Cambodia’s history, he knows all that Pohn & Fin have told us – he is training to be a tour guide too. He has the knowledge & his people carrier already, speaks English very well, and some German but needs to learn more Japanese before he can apply to be a guide.
+
+I couldn’t believe that there is so much involved, he is funny & interesting,  I really hope he gets there, he deserves to. The group reappeared to find me happily ensconced in a hammock.
+
+This part of the tour, they said was not as interesting as the other places we’d been, and the climb in the heat Andrew said was as much as he could have coped with. Andrew had taken photo’s of carvings in the river bed, but the waterfall was dry as the rainy season is due. We set off towards the temple, stopped for lunch at a little cafe opposite. Andrew spotted a stall selling Dunhill menthol so bought me some as I was running short of ciggies.
+
+The café has fantastic rough carved mahogany stools, really heavy and solid – I’d love to take some home, $20 each.
+
+We arrived back at 3ish and say thank you and goodbye to Fin who has been brilliant, he gave us our Temple passes as souvenirs. Po Lee will drive us to the border when we leave.
+
+We met at 7pm and ate at The Soup Dragon, & I bought one of their T shirts with the Dragon embroidered on it. The money from the sale of these goes to the Children’s Hospital in Siem Reap. After a delicious dinner we went back to Angkor What? for another relaxing evening of chatting, fun and cocktails.
+
+Saturday 23rd March
+=
+Went out for a wander around the local market in the morning. We bought a lovely pair of turquoise earrings for me, and a Cambodian land mines T shirt for Simon.
+
+We hired a Tuk Tuk about 3pm and our driver took us on a sightseeing tour of Siem Reap.
+
+We tootled about at 30mph for an hour or so seeing the places that we haven’t been to as we’ve spent all our time at the temples. He took us across the river, it’s an excellent way to check out the area. You just call to the driver if you want to stop somewhere and he will sit and wait for you. There is something very tranquil about going at this speed out in the fresh air with a lovely breeze to keep you cool, we really enjoyed it, he dropped us off at the Red Piano for a fruit shake.
+
+Our group decided that we would like to see some traditional Cambodian dancers tonight Amir & Glenn found Wi and all was arranged, she had booked 5 bikers to take us to the Bayon restaurant, it does a buffet meal and the dancers are on stage for about an hour.
+
+The meal was certainly different, lots of frog dishes {whole frogs} green curry, fried spaghetti etc. The dancers were good, so graceful and elegant we really enjoyed watching them.
+
+Our bikers returned to fetch us Rasheen insisting that I got on his bike again, and dropped us back at Angkor What? Where else for our last evening of cocktails and shooters? A quieter evening here than usual but really enjoyable. We said farewell to the lovely Auzzie barman – a cool dude.
+
+Sunday 24th March
+=
+We left Siem Reap at 8.30am it’s a 4 hour drive to the border where we said goodbye to Po Lee.
+
+We went through passport control twice, exit & entry. A minibus awaited us so we loaded up the backpacks then went for lunch at a scruffy little café serving great food, a 3 hour drive to the fruit farm followed. There are lots of Laburnum trees all in blossom and looking gorgeous in amongst the bougainvillea and other flowering trees.
+
+About halfway there’s a bump & the minibus weaved & stopped. The back wheel is rolling down the road Pete informs us, we all got out and took pix of this unexpected event while the driver retrieved his wheel. He found a garage and we found a beer while we waited.
+
+We arrived at Green Future unscathed, Jacques met us in his pick up truck to take us the last ½  mile or so as it’s too steep for the minibus. Jacques a really nice Swiss man showed us our chalets, and told us to pick any fruit we want to eat while we stay.
+
+Jon called us to walk up the hill and watch a fabulous sunset. Jacques showed us where the beer was then fetched a take away for dinner. We sat listening to cicadas, birds and the Gecko’s of course, with fairy lights surrounding the patio – this is idyllic!
+
+After dinner we played Cheat & we persuaded Jacques to join us, it was a very memorable evening.
+
+Monday 25th March
+=
+Jacques made tea & toast for breakfast and we sampled his wife’s home made jams - banana, papaya, and lychee, all delicious, we were particularly fond of the lychee.
+
+We chatted & discovered that the noises I'd heard in the night were elephants in the distance, apparently the herd  come up to the farm sometimes, but are about 4 hours trek away.
+
+This place is wonderful, so tranquil, Jacques farms bananas, lychee, mangoes, pineapples, avocados, jack fruit, julienne, and muff Thai which is my favourite.
+
+Jacques told us he didn’t feel well as he drove us to the National Park, we have a fairly steep 45 minute trek through jungle to a beautiful waterfall. The butterflies here are huge and in amazing technicolour, the waterfall is lovely and very cold.
+
+We got back to the car to find Jacques a lot worse, he dropped us at a café en route to the Malaria clinic.
+
+We had lunch then took a bus to the market, Wi said she'd  cook that evening. We caught another bus to Jacques home to see how he was and got a lift back to the farm from a friend of his. His wife gave us a rice steamer full and cooking to take with us.
+
+Pretty horrendous ride up the steep hill in a pick up we thought he’d drop us where the minibus did, but no. Evil Kneavel decided to go for it, Pete & I stared in horror as we careered over the bridge {steep drop} with about a ¼ of the wheel on the road and rest in mid-air. Glenn was sliding towards the open back, still clinging  to the rice pot between his feet!
+
+Wi cooked while we had a cold hose down, none of your namby pamby hot water here.
+
+She refused our offer to help so we adjourned to the patio, a feast followed, 3 main courses and sticky rice with coconut milk & fresh mango, all cooked on 1 ring we discovered later – what a hero. We'd bought candles so we ate by candle light, then let off some fireworks – quite spectacular, we lit the sparklers and waved them around making pretty patterns in the dark.
+
+Then we settled down to play Cheat again, it was a really fantastic evening, full of fun and laughter.
+
+Tuesday 26th March
+=
+We had toast & lovely jam, tidied, packed up & set off to Koh Chang.
+
+The Gecko’s were all calling last night, I have grown so used to hearing them, & seeing them run around the walls & ceilings, I shall really miss them when I go home.
+
+We had another mad driver this morning, our 2 hour journey to the ferry took 1 hour 10 minutes.
+
+The ferry ride took ½ hour, spent watching the island grow closer there’s a “Welcome to Koh Chang” sign at the dock.
+
+Koh Chang is very beautiful we are staying at Chalet AA3, K B Bungalows, Khaidao House, Kai Bae Beach, owned and run by Dao,whose name means fried egg in English.
+
+Lovely beaches and warm sea right in front of the chalets. These are fairly basic, a bed, a clothes rail, a wet room with cold water shower, loo with obligatory cold hose, used instead of loo roll. This is one thing that has taken some getting used to since we left Bangkok.
+
+We had a wander around, Andrew bought me a lovely sarong black with vivid colours in a V pattern, and a razor for himself, Jon bought 3 sarongs too. Glenn & Pete had a Thai massage, then we all met up for cocktails on the beach to watch the sunset, which was beautiful, it sets into the sea. Wi recommended Chi Chi a fresh coconut & pineapple cocktail which became a favourite.
+
+Andrew had shaved off his beard, peoples reactions were hilarious, Wi didn’t recognise him, Jon was funny, he knew something had changed, but it took him a while before he worked it out.
+
+Had a lovely meal at Dao’s, she speaks good English so that's a bonus when we're ordering food. We went for a stroll over the rickety bridge that Jon & Pete had found earlier to the Joker, then along the beach to Porn a great bar that makes wonderful cocktails. There is a Full Moon Party here soon, I think we’ll come to that.
+
+12.20am, I was woken up by a mozzie flying into my ear buzzing wildly. The rest of the night was a nightmare, packs of dogs fighting & howling, one scratching our door, another dug a hole under our chalet - we hope this improves.
+
+Wednesday 27th March
+=
+We had a massage each booked for 10am the massage ladies appeared and we had an hour of pampering for around £3 each. All met for lunch at KB, the boys are all off to Lonely Beach after that. I decided to stay & swim, the water is lovely and the salt helped my bites, but the beach here is stony I cut my feet several times on sharp jagged rocks.
+
+Jon & Pete returned first, they walked back as they'd got fed up waiting for the taxi, they called me as I headed back to the chalet.
+
+The others wished they'd walked too, their return was on the roof of a construction lorry, ducking to avoid the electric cables! Andrew has bought me a prezzie, a lovely elephant patterned sarong. Lonely Beach lives up to it’s name, no cafes, bars or shops, & no electricity or running water, the beach however was gorgeous, they all say I'd love it.
+
+Dinner was really good again as were the cocktails, the very sullen waiter is on duty again tonight. I comment to Pete that Barry would say he has "a face like a slapped arse!" Pete says he would be right too. We went to the Deep Blue Sea bar, but cocktails frankly disappointing so moved on to the Joker which was much better.
+
+Thursday 28th March
+=
+Breakfast early, I'm becoming addicted to Dao's spectacular fresh coconut shakes.
+
+Then off on another noisy smelly boat, we stopped near Koh Khlum first, nowhere to land so you just leap out of the boat to snorkel.
+
+Went on to Koh Wai where we moored at a pier and snorkeled before lunch, the sea is very warm and there are loads of lovely fish some of them are like a rainbow, pretty corals and purple, green and blue anemones. The beach is beautiful white sand with turquoise sea, reminiscent of the Grenadines. Wi had brought a picnic lunch for us.
+
+We snorkeled till about 3pm then left as it's 2 hours back to base. I can feel that I'm burning although I'm wearing factor 25 sunblock, Pete resembles a lobster too.
+
+Wi took Andrew & I to check out another chalet as soon as we docked, it's farther up the beach about halfway to Porn which is a bonus. It is lovely, with air con. a large bed, fridge, TV, and a lovely wet room with a hot shower. It belongs to Dao's cousin, we decide to transfer as it's quiet, pretty & we have several more days here.
+
+We met up for cocktails at sunset, a barbecue for dinner but I couldn't eat much, Pete touches my arm and can't believe how hot I am, my head is starting to pound too. I really wanted to go out  as it's our lads last night. A taxi is booked to take us to Haad Sai Khao {White Sands Beach} where there is a Full Moon Party. I went to fetch my boots & discovered 5 giant sized cockroaches in our room, freaked out totally, Andrew squashed 2 but the others got under our bed. Pete and Wi came to see what's wrong, Wi talked to Dao, who promised to get them removed.
+
+We boarded the taxi and hit the beach. Excellent Long Island Iced Tea - but I couldn't drink it, we think I have sunstroke, I gave up at 11pm and having hugged all the lads and Wi, we went back.
+
+I spent a very bad night sitting on the bed, my headache made me sick when I tried to lie down, I can't lie on my sunburn, I have a horror of cockroaches running over me & the dogs are fighting again. What a sad puppy!
+
+Friday 29th March
+=
+Wandered over to KB, it's strange not to see any friendly faces here. Good old Slapped Arse was still glowering - he threw breakfast in our general direction.
+
+Packed up and lazed around reading till the new chalet was ready. I'm avoiding the sun as I bear a close resemblance to a boiled lobster.
+
+We moved at 1pm, the maid came over with a trolley to cart all our goods and chattels to the new chalet S1. We unpacked, air con is bliss. Read and doze all afternoon, Andrew had a bad night too.
+
+We took a walk over the rickety bridge to the Taxi Stop cafe, run by a young English couple, & ordered burgers, fries & coleslaw with Long Island Iced Tea then back to the lovely pristine new chalet for an early night.....
+
+Saturday 30th March
+=
+We had a wonderful night's sleep, no dogs and my sunburn is abating to a dull ache. We walked over to KB to hire a bike £5 a day rental, no insurance included.
+
+Andrew's never ridden one before let alone pillion, he had a 10 minute run on his own, then collected me, & zoomed off to White Sands. This bike's in great condition, the clutch slips, & the brakes are not too great either. Andrew’s worried in case he knocks me off the back as we jerk with every gear change.
+
+Went to Best Pub for lunch, Andrew had “fried gravy with ground beef.”  We wandered around the shops buying more T shirts & some new trousers as Andrew has shredded his from knee to waist on the bike.
+
+Decided to go to Lonely beach but the roads that way resemble a roller coaster. We both leaned forward going uphill as the bike grunted &  threatened to reverse back down. I almost slid off the back twice as Andrew changed down a gear. On a particularly steep incline I got off and walked as Andrew did Fred Flintstone impressions to get the bike to the top, this bike is certainly giving us a laugh I can walk up the hill faster it travels.
+
+Down hill was worse as the bike picked up speed I called to Andrew to slow down please.
+
+The brakes on full he shouted back as we hurtled down the slopes.
+
+Another biker skids in front of us and crashes, both he and his girlfriend got up immediately but looked shaken. "Are you ok?" I called helplessly as we scooted past them.
+
+This is a wonderful beach, white sand and no rocks, the sea was warm and the sun was sparkling on it. A fabulous place to relax and swim.
+
+We left at 5.30 to get back for the sunset & happily gave the bike back in exchange for a large cocktail each. Chose dinner from the barbecue at KB, and relaxed for the rest of the evening.
+
+Sunday 31st March
+=
+We relaxed all day then went out to find dinner at Porn, the Full Moon Party is on tonight.
+
+As we approached Porn along the beach we could see a ring of fire stretched around the whole bar area, bamboo stakes alight with kerosene, lit our way. All the tables have lamps softly glowing on them. The tree in the centre of the bar sparkles with fairy lights & is festooned with balloons. The bar area is lit with ultra violet lights and coloured silk lanterns. A bonfire sits on the beach ready to be lit. Morcheeba's Big Calm is playing gently.
+
+Huge glittering fireworks suddenly light up the sky, the atmosphere is electric.
+
+We ordered food, found a table, & a Singapore Sling - our Rasta barman is a perfectionist, he takes care with every drink, the results are stunning every time, and prettily decorated with "boats" made with fresh pineapples, limes and cherries. We enjoyed our meal and several wonderful cocktails, I decided that we must try every one on the menu before we leave.
+
+The bonfire was roaring, they let off random fireworks throughout the evening and there are 3 fire jugglers on the shore, whirling like Dervishes spinning rings of fire. They know how to create an atmosphere here, the music is good too Sting, B B King, Eric Clapton, U2, REM an utterly brilliant evening, we reluctantly left  to walk back along the shore listening to the waves....
+
+Monday 1st April
+=
+Woke up to torrential rain which continued till 11am, then ventured out to try to find a "taxi." These are not taxis as we know them, you can't book one, they just appear on the horizon and if they happen to be going in your direction then they will take you. They are the only public transport as such, although lorries etc. may stop if they feel like it, and will charge you the same fare. We found one going to White Sands and went to Ban Nura for pizza & chicken kebabs with hot potato salad.
+
+Strolled around the stalls looking for a Gecko sarong, I'd seen one from the bike the other day and decided I must have it.
+
+Went back to S1, a cat is sitting by our chalet, she stalks in as if she owned the place and inspected it thoroughly, including the shower. She seemed hungry so we fed her some Pringle's.
+
+Andrew's shoulder hurts, I think he must have damaged it on that bike yesterday - poor love.
+
+Torrential rain again, followed by a terrific storm, the loudest cracks of thunder I have ever heard, sheet lightening lit up the whole sky. By 8pm we decided that it just wasn't going to stop, so we walked along the beach for dinner. The rain is warm here and it was bright enough to see. One of the 5 or 6 resident dogs here has adopted Andrew. She came running over to him shaking & stayed under our table till we left.
+
+Back at S1 we find 100's of sand flies, they've come in out of the rain. We spent ages swatting them, the mozzie repellent plug in seemed to be killing them too, our bed with the sparkling white sheets has become a fly cemetery, Yuk!
+
+Tuesday 2nd April
+=
+Coconut shake & porridge with bananas for breakfast,  Andrew stuck with eggs, but nicks some porridge and got hooked too.
+
+We spent the day reading, swimming and generally relaxing. We sat on the beach to watch a lovely sunset.
+
+Later we went over the rickety bridge to Lee's Kitchen for dinner, amazing ground pork on toast for starters, but she didn't understand "no chillies please" so my sweet and sour was loaded.
+
+Andrew bravely ate his way through our dinners. Lee came out and seemed distressed that I wasn't eating, walked up to Taxi Stop where Mike told me he'd just made a peppery beef stew, would I like some with some French stick? Would I!
+
+Wednesday 3rd April
+=
+KB’s for banana porridge & coconut shake - this is becoming a habit.
+
+Slapped Arse throws it at us as usual, I've yet to see him be civil to anyone.
+
+Spent today as yesterday, we are getting so laid back that we have fallen over – we're an utter disgrace, and loving every minute. Watched the sunset into the sea, then Dao asked if we wanted to try her special crab patties tonight, they were not on the menu & were delicious! We ordered wine with dinner for a change, brought the rest back to drink at S1.
+
+Pringle the cat was awaiting our return and spent some time with us.
+
+We drank our wine and read for a while, I massage Andrew's shoulder as it's hurting and stiff.
+
+Thursday 4th April
+=
+We were up & out early today, breakfasted, hired a bike and were off to the waterfall by 9am.
+
+Not such a bad ride as the road is fairly level for most of the journey. We parked the bike, bought tickets, and began a steep winding climb which continued for 25 minutes or so, seeing lots of little brown lizards on the way.  When we arrived the waterfall's not in full flow, as the monsoon season is due, but it's flowing and it's tranquil up here, the surrounding scenery is lovely.
+
+We sat on a rock paddling our feet in the water, then little almost transparent fishes come up close to inspect us. I felt something and realised that one is nibbling my toes. Soon there are lots of them nibbling our feet, it really tickles, but I'm really pleased that they have no fear of us. I tried to keep my feet still and film them for a while.
+
+There are beautiful large butterflies here too, we watched them dance past us but I couldn't catch them on film. Unfortunately within an hour or so the place was getting packed with people. As men jump into the water howling we decided it was time to go, I am so glad we came here early.
+
+We rode down to White Sands for brunch and parked up to go to Mac's Bungalow {there are strange names here Easy Pub, Comfortable Bar and No Name for instance.}
+
+Mac's is on the beach and is very pretty, a rottweiler patrolled the restaurant and came to check us out, he was big & friendly. We watched people scour the beach with metal detectors while we ate, then strolled around the stalls and bought 2 lovely sarongs, both patterned with Geckos. Stopped for a cold drink at a pretty place on the way back which had carved elephants and a lovely white canvas temple in the garden, then took another break at the Elephant Trail and some film of the elephants you can hire for a ride on the beach. One of the keepers was giving an elephant a drink from a hose pipe.
+
+We returned the bike & stayed for a coconut shake, while I wrote postcards. Back to S1 our air con is registering over 30C and it feels cool in here.
+
+Decided to try the vegetarian restaurant, it's called Piggy's Delight, perusing the menu was great fun, we have come to really enjoy this as English is not always a strong suit here. Today we can choose from "fired pineyapples" or some "mixed farits chacks" or even "piskled green onion soup".
+
+We ordered corn patties, mushroom & ginger soup,sour & spicy cabbage & coconut soup with bitter gourds, all excellent. Decided to round off the evening with a cocktail at Porn,
+
+a nightcap became 3, the ambiance here makes it difficult to leave, I love the Blue Bave cocktails and we tried a Porn Special which is an amazing shooter they set light to it and you down it through a straw before the flame goes out, then you feel the top of your head explode.
+
+Pete, Jon & Glenn would have enjoyed these, I'll have to ask how they make it. It's quiet tonight but really good all 3 barmen were dancing as they mixed the drinks and singing along to the music. They are great fun, we left at 12am and paddled  through the waves to the chalet.
+
+Friday 5th April
+=
+Lay on the beach reading & drinking water, suddenly  there was a tremendous crash, someone had felled a Palm tree, rapidly followed by another. They are building more chalets here, 4 have gone up since we arrived. Read, wrote my diary, dozed etc. Watched the sunset at 6pm and it’s pitch black by 7pm, Thailand is very close to the equator.
+
+They have left the poor Palm trees straight across the path making reaching KB quite an adventure. There is Barracuda on the menu tonight, neither of us have tried this, it's a strange pale green/beige colour. I taught Dao to make us Blue Bave - almost as good as Porn, she makes a mean Lemon Daiquiri.
+
+I haven't said much about Dao so far, she is the keeper of our passports, driving licences, spare cash etc, She speaks marvellous English, rents us bikes, prepares us dishes not on the menu, helps with transport & any info required about Koh Chang, & gives us a tab for everything, which we can pay for by card before we leave. A real bonus as there are no ATM's on the Island, she also supplies cash at 10 percent. She has owned & run this place for 10 years. Andrew says she is a sound business woman - a high accolade from him. We have both noticed that some people arriving here obviously come back year after year, they greet each other as old friends.
+
+Saturday 6th April
+=
+Woke late and decided to have brunch at Lee's Kitchen, she comes to greet us wreathed in smiles, "I remember you" she says, "No chilli". We ate her exceptional pork on toast, followed by Chicken "Doodle" Soup -  delicious.
+
+The world is at Koh Chang this week end, there are tents on every available inch of the beach & the place is heaving with people, students are on the beach playing guitars & singing.
+
+Definite danger of not finding a table to eat at anywhere on the island.
+
+We hired a bike again & decided to go and see the Fishing Village. Andrew says when we reach Lonely Beach we are about half way.
+
+We do the roller coaster ride again, surely the roads will not be like this all the way?
+
+No - they  are worse! Hurtling down hills again & chugging up the other side, both leaning forward in the hope that this bike will reach the summit rather than reverse back down.
+
+Also there were 2 lots of road works to contend with & 3 rickety bridges - drops of 20 feet if the bike goes through the gaping holes, or our combined weight makes the bridge collapse James Bond stylie!
+
+Where the hell is this place, we've already travelled 4 times the distance from Lonely Beach, did we pass it with our eyes shut, or has it simply fallen down one of the larger holes? We reach a road sign "DANGER SLIPPERY ROAD." A pick up truck overtakes us & slides, tries to brake and skids to a stop side on. The driver tries to turn and eventually manages to bring the pick up back up the hill, he hasn't even got an ⅛th of the way down this 45 degree slope when he changes his mind.
+
+I meanwhile, am off the bike on terra firma again, knees wobbling, chain smoking while watching this poor man. Bugger that for a game of soldiers.
+
+Andrew agrees so we head for Lonely Beach and never did see the fishing village. We stayed long enough to watch the sunset very beautifully into the sea.
+
+We parked up on the way back to film the coastline and the Blue mountains, amazing panoramic views at the tops of these hills. Then returned the bike thankful to be still wearing skin!
+
+We tried some weird German dish that was Dao's special this evening & crab patties, then sat with our cocktails just people watching and listening to the sea and the Gecko's....
+
+Sunday 7th April
+=
+Had a chat to Dao about the Elephant Conservation Camp this morning. They arrange Elephant Jungle Treks to raise money to keep their elephants, she will book us on a Jungle Trekking afternoon.
+
+We swam for a while then tried to walk across the sea to the island opposite, we've talked about doing this, Jonathan was sure it is possible. We set off into the sea the rocks here are very sharp and some of the coral can sting you, but the sea is clear so you can see where you are going. We passed the rocky stage & found a sandy area, occasionally there are slimy holes, they feel horrid if your foot  slips into one of them. I keep wondering what lives in them and will it attack a stray foot? The rock patches are back we really have to watch every step. Both of us have cut our soles and I have a couple of stings from coral. Only ⅕th of the way left but we can't get any farther it’s all sharp rocks now. It's too shallow to swim so reluctantly we turned back. We are so fed up that we didn't achieve this, I really wanted to tell Jonathan - yes it can be done!
+
+I fetched the vid cam when we got back and walked back into the sea to take a panorama of Koh Chang. Had a hose down & tried to salvaged our  feet, then got ready to go to Porn - they are having another Full Moon Party tonight. We ate barbecued mussels etc.
+
+The party is much the same as the last one, so atmospheric. I tried to film the bonfire, fireworks & fire jugglers, this time one of them was eating fire too. Another brilliant evening, the music was great, the cocktails were perfect, there are none left on the menu to try – so we've tried all of them as planned!
+
+We walked back along the beach, the sea looked wonderful sparkling in the moonlight so we decided to go for a swim. As we stepped into the water we were fascinated to discover that we were sparkling too, millions of  luminous plankton sparkling like tiny diamonds, covered us. We watched our bodies lighting up, I've never seen anything so beautiful in my life, we were totally enchanted. We stayed in the water for a long time, we may never see this again, I'm so glad of our impetuous decision. A romantic and magical end to a wonderful evening.
+
+Monday 8th April
+=
+Our penultimate day here already, we went for a swim before breakfast, the sea is warm but normal. Dao says we may do the elephant trek tomorrow. Our massage lady reappeared so we have 1 hour of massage, followed by a pedicure and manicure each.
+
+The sun moved around whilst we've been pampered and has got us quite thoroughly. We lather each other in after sun cream annoyed that we were still so careless.
+
+We read under the air con then went to replace my book again. Andrew did a panorama with his camera, he will stitch the frames together when we get home.
+
+Ate bruschetta & burgers for dinner, and tried the Banana Farmer cocktail at Taxi Stop, they have been closed for a few days celebrating Mike's 21st birthday. The lads are still hung over so it must have been good. Called in at KB to confirm Elephant trek, Slapped Arse smiles at me as he shows us to a table, "you go in morning" he says - the only smile we ever got, can only assume he can't wait to see the back of us.
+
+Dao has booked us tickets for tomorrow at 1pm. Back to S1 for more after sun and gingerly to bed.
+
+Tuesday 9th April
+=
+The taxi  turned up about an hour late with a nice French couple and their daughter who were joining us. We headed for Ban Kwan Chang, another mad driver we hang on like grim death, all hoping for safe arrival at our destination.
+
+The interpreter has a chat with us on our arrival. She tells us about the three females we will be trekking with - Noi, who is 50 years old, Ginola is 15, and Ghandi is 19. She tells us about their eating habits, their habitat and that they are generally brought up by & with their mahout - it should be a life time partnership. There is a bull elephant here too, she says - but he is mad and is kept away from the public & other elephants.
+
+The mahouts bring over our elephants saddled up with the baskets we will sit on.
+
+Unlike the baskets in Cambodia these have no bar across you to hold you in. We are given Noi and climb aboard, " Huah Noi" the mahout says, this is her signal to start walking.
+
+She does not want to take us and tries really hard to turn back and go home. When that fails she decides to ignore us all & eat some banana leaves instead, maybe we'll go away?
+
+Finally she gives up and with a sigh she breaks into a trot down the steep slope  to catch up with the others. I cling on to the back of the basket as my bum heads rapidly forward, my legs are dangling behind her ear. She slows as we reach the others, "Huah Noi" Atuk her mahout calls from the top of her head where he perches.
+
+The other keepers join in the chorus but Noi has decided it's time for a break, Atuk tries hard to shift her and eventually she moves forward again. The trek through the jungle is steep and rocky, we move at a leisurely pace, the elephants stop where ever they want for a few bamboo canes or perhaps a banana tree. At the river they all stop to cool themselves, trunks full of water are blithely showered on to their backs, when they are soaked through & we are too, we continue.
+
+Ginola has a good sense of humour, you can practically see her laughing as she sprays all of us. Suddenly from behind there is a noise resembling a waterfall, Noi has stopped for a pee. "Chang beer" Atuk calls, laughing. About half way through our trek Atuk asks Andrew if he would like to take over. Atuk climbed down from Noi's head & Andrew slid off the basket on to her neck  "Huah Noi" said Andrew, and eventually she did. Atuk asked if we wanted him to take a photo of us, he was fascinated that he could see the results, so took another one. We stopped for more elephant snacks on our way back. When we arrived back at camp Ginola "shook" trunks with me to say goodbye. They were unharnessed and came down to be fed some bananas - they took them very gently from us.
+
+Noi ate four at a time, Ginola was very lady like and accepted one at a time.
+
+Bizarrely there is a burgundy pedestal basin plumbed with cold water standing behind us in the jungle. We wash elephant snot off our hands and sit down to drink a coconut each and eat some fresh fruit we've been given to refresh us, we are asked to write our comments and sign the visitors book.
+
+After this it's bath time, so we followed the elephant's down to the river for a hilarious half hour, Ginola is straight in there she obviously loves the water, as we noticed earlier. She lies down, spraying herself then rolls around letting her mahout wash her. Ghandi gets in too and rolls around playing then lies propped against a rock letting her keeper scrub her.
+
+Noi gets in last, she sits and sprays herself, but won't lie down. She is first out and walks straight towards me heading to a fresh water stream for a drink. Ghandi climbs out next and follows her mahout back up the hill.
+
+Ginola is still playing and really wants to stay longer, you can see the pleasure on her face, she is lovely! But she obeys her mahout and heads for home. We stopped as they pass our taxi, the mahouts all wave and call goodbye to us and Ginola waves her trunk.
+
+A truly wonderful afternoon, I'll never forget it. We climbed into our taxi for an equally crazy return journey. Back at base we drink a coconut shake then go to shower and change and reluctantly pack to leave.
+
+We break to sit on the beach to watch our last sunset at Koh Chang, it is a particularly stunning one. In the afterglow I walked out to sea, to pan round the Island, even the sea is pink tonight, this place is so beautiful, I could stay here forever.
+
+We went for dinner, sweet & sour squid with vegetable kebabs and our last Lemon Daiquiri, and Chi Chi at Dao's. We walked to Porn, where else would we spend our last evening? We can hear B B King as we approach. Blue Bave, Margarita and Special Porn shooters. We listened to Manu Chao – great music, someone asks what he looks like, our Rasta barman says "He looks like me!" We say good bye to all the lovely barmen at Porn. We will both miss this place, we agree that it is the best bar that either of us have ever been to.
+
+Wednesday 10th April
+=
+We were up at 7.30am the maid arrived with her trolley again to take out bags to the taxi. We had a last coconut shake. The ferry crossing was smooth and we found our other driver with no problem. Wi had booked him for us we reached the Viengtai Hotel at 4pm. We dumped our bags and headed out to stretch our cramped legs. We strolled down the Khao San Road drinking Chang and checking out the goods. Bought me yet another sarong - blue tie dye, very pretty, and a flying plastic butterfly for Matthew and Elliot. Found some lovely solid silver Gecko earrings which Andrew bought for me too. I really like this road lined with shops and market stalls, they sell everything here and it's one of the main celebration areas for New Year. We bought more UFC tomato juice and retired to bed.
+
+Thursday 11th April
+=
+We decided to find a suit shop to get Andrew kitted out for interviews. We went to Pierre's adjoining our hotel, a Canadian couple were having their final fittings so we asked to see his suits. They look really well made so we start choosing fabric. We decided on blue/grey and a charcoal grey both in cashmere. We checked the cottons and selected four to be shirts then Andrew was measured up. They are also making 5 shirts for me 3 satin and 2 silk. They will post them to us as New Year makes it impossible for them to make them in time.
+
+We went to Pantip Plaza, a 5 storey computer outlet it's about the size of Milton Keynes shopping centre. We walked around for over 3 hours, this at last is Andrews kind of shops, we have bought loads here - perfume, keyboard & mouse, 16 DVD's and a tropical fish screen saver, numerous computer CD's  and some blank CD's. I went out for a ciggie and saw a man come out with a laden trolley. He put it alongside his moped then proceeded to load a computer monitor, screen, printer etc. on to the back. He strapped them all on with elastic clips, and drove off. Unbelievable.
+
+We walked down to the World Trade Centre - basically a mall for American tourists, all designer shops, not very interesting. We bought an elephant notepad, Andrew spotted a stall selling menthol Dunhill and bought me some as I was down to my last 12 cigarettes.
+
+Took a taxi to the Siam City Hotel, a very classy place, the doorman was in uniform, brown silk plus fours, white knee high socks, and shoes with large buckles on them. He escorted us to the Japanese restaurant where we are having dinner, a lovely room in slate and bamboo. We had a feast, Singha beer for Andrew and Sake for me, loads of fantastic Sushi with Miso soup, then sticky rice with coconut milk and fresh mango. Wonderful and much enjoyed by us both.
+
+We found a taxi and asked him to take us to Suan Lum Night Bazaar, it has over 3,000 shops and is open till midnight. We discovered as we walked through the stalls that we were in Pat Pong instead which is a night market too but has all the "Pussy Shows" We were accosted from every direction by touts & eventually we succumbed, you have to try these things once don't you?
+
+We paid 500 bahts for a beer - the usual price is 40. I was handed a balloon & told to hold it in the air. Then I saw was a girl on the stage firing darts from her bits, the 3rd dart popped my balloon. Meanwhile a girl in a fluorescent green bikini was trying to give me a massage. A girl on stage inserted sparklers and set light to them while dancing, another "drank" a bottle of water, a stripper started winking at me, as she played with her boobs. Green bikini put my hand on her boob and I decided it was time I left.
+
+We headed back to the stalls, bought several T shirts, blue silk trousers, sunglasses for Gracie, an antique silver chain for Barry, a new chain for my pendant and a fake Rado watch for Andrew. We found a taxi and headed for the hotel and bed.
+
+Friday 12th April
+=
+Our first stop this morning was to see Sukhothai Traimit Golden Buddha, he resides in the Traimit Witthayaram Temple, just outside Chinatown. This is the largest Golden Buddha image in the world, measuring 15 feet 9" tall and 12 feet 5" in diameter. The Buddha was thought to have been plaster, when they moved him to this Temple in 1955 some of the plaster broke away revealing gold. When the rest was removed it was discovered that this statue is solid gold and weighs just over 5 tons. The map says he glows like molten liquid in the sun - we decided to go and see him - he does. We sat for a while, he's another lovely serene faced Buddha, we bought a glass one later. We walked down to Chinatown and River City a shopping mall, had lunch in the Atrium cafe. Followed the road signs and found the markets, they are mainly food stalls and bric a brac. Lots of mechanic workshops too. We got well and truly soaked, our first New Year's drowning, a young girl poured a large jug of iced water down our backs. We headed back to the hotel, the road was blocked. New Year Festival was being set up, so the driver told us to walk. We did and got squirted by kids with water pistols several times.
+
+I called in at Audy Beauty Salon attached to the hotel, I wanted my eyelashes tinted, they could fit me in so I stayed & was easily persuaded to have a facial too so spent an extra hour being pampered, the best facial I have ever had. We stayed in for dinner, purely as we didn't fancy getting soaked before we ate.
+
+Saturday 13th April
+=
+We decided to go to Chatuchak Market today, it has over 6,000 stalls. Discovered that we could get there on the Sky Train so a taxi took us to the station. The Sky train is really cool with good views of Bangkok spread below you, it's also air conditioned and extremely clean, cheap & no traffic jams to worry about either.
+
+We really enjoyed our day at this market, walked all day with a stop for a drink and a chat to a nice Canadian couple, they'd bought some monkey nuts and a little stray cat was eating them. Later we had an excellent lunch of pork and shrimp on toast, won ton soup and lime ice cream. Bought more prezzies for family. Found an amazing blue beaded scarf, I really wanted this so I haggled. Bought a fake Leopard bag to put all the extras we've bought in. It's been a really fun day, we have been soaked thoroughly several times, some kids just attack with a hose pipe. They have strange plaster of Paris type stuff which they mix with water and smear all over peoples faces, it sets like a mud pack.
+
+Caught the Sky train back, and we ended up walking to the hotel. Dumped the shopping and braved the outdoors again for dinner just over the road.
+
+Sunday 14th April
+=
+We fly home tonight. Went out for some lunch then walked down the Khao San Rd, it looks so bare without it's stalls, all the shops are boarded up against the water. People are smearing and squirting as if their lives depended on it. Pick up trucks roam full of kids throwing water over the crowds. Packs of youths on motor bikes rev and backfire. The traffic is at a standstill, this is Thai New Year - the celebrations continue for 4 or 5 days.
+
+We packed then Andrew went for a massage at Audy. We read and lazed around, at about 6pm we decided that we ought to find a taxi, reception had laughed at Andrew when he tried to book one this morning. I watched out of the bedroom window, eventually I spotted a taxi heading for the hotel. Andrew dived downstairs from the fifth floor and caught him, and he agreed to take us. Andrew fetched the luggage and I chatted to the driver while Andrew checked us out.
+
+We arrived at the airport at 9pm Andrew was wet, our taxi driver had a water pistol too, when he opened his window to squirt they both got hit by a larger pistol.
+
+We checked in, I had my bamboo parasol wrapped separately and put through to the hold, it's classed as a pointed weapon so I’m not allowed to board the plane with it!
+
+Perused the airport map and discovered a Japanese restaurant so we went to find Sushi, sake and beer - all very good. We lingered over dinner as we don't fly till midnight.
+
+Did some last minute shopping, an elephant bag and 2 of the long Thai cushion beds I've been trying to persuade Andrew we need for the garden. The shop assistant wrapped them and passport control sent them down to the hold for us. We were ready to depart and I wished we were just arriving, we have both enjoyed this holiday tremendously....
+
+The Pictures
+=
+{{< flickrset 72157625862551878 >}}
