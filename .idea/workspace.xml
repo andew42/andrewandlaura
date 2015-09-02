@@ -1,11 +1,14 @@
 <?xml version="1.0" encoding="UTF-8"?>
 <project version="4">
   <component name="ChangeListManager">
-    <list default="true" id="b04371dc-ada4-49c1-93d2-02fb4cc52bff" name="Default" comment="More Holidays&#10;A little bit of styling&#10;">
-      <change type="NEW" beforePath="" afterPath="$PROJECT_DIR$/content/holidays/1998StLucia.md" />
-      <change type="NEW" beforePath="" afterPath="$PROJECT_DIR$/content/holidays/1999SanFrancisco.md" />
-      <change type="NEW" beforePath="" afterPath="$PROJECT_DIR$/content/holidays/2001SwissCottageWolvetonGatehouse.md" />
-      <change type="NEW" beforePath="" afterPath="$PROJECT_DIR$/content/holidays/2002ThailandCambodia.md" />
+    <list default="true" id="b04371dc-ada4-49c1-93d2-02fb4cc52bff" name="Default" comment="">
+      <change type="NEW" beforePath="" afterPath="$PROJECT_DIR$/content/holidays/2002TheOldPlaceofMonreith.md" />
+      <change type="NEW" beforePath="" afterPath="$PROJECT_DIR$/content/holidays/2003WoodspringPriory.md" />
+      <change type="NEW" beforePath="" afterPath="$PROJECT_DIR$/content/holidays/2004ThePineapple.md" />
+      <change type="NEW" beforePath="" afterPath="$PROJECT_DIR$/content/holidays/2006TheOldVicarage.md" />
+      <change type="NEW" beforePath="" afterPath="$PROJECT_DIR$/content/holidays/2006Venice.md" />
+      <change type="NEW" beforePath="" afterPath="$PROJECT_DIR$/content/holidays/2011Florida.md" />
+      <change type="NEW" beforePath="" afterPath="$PROJECT_DIR$/content/holidays/2012MackintoshBuilding.md" />
       <change type="MODIFICATION" beforePath="$PROJECT_DIR$/.idea/workspace.xml" afterPath="$PROJECT_DIR$/.idea/workspace.xml" />
     </list>
     <ignored path="holidays.iws" />
@@ -30,11 +33,11 @@
   </component>
   <component name="FileEditorManager">
     <leaf>
-      <file leaf-file-name="1998StLucia.md" pinned="false" current-in-tab="false">
-        <entry file="file://$PROJECT_DIR$/content/holidays/1998StLucia.md">
+      <file leaf-file-name="2004ThePineapple.md" pinned="false" current-in-tab="false">
+        <entry file="file://$PROJECT_DIR$/content/holidays/2004ThePineapple.md">
           <provider selected="true" editor-type-id="text-editor">
-            <state vertical-scroll-proportion="7.1" vertical-offset="1203" max-vertical-offset="1620">
-              <caret line="66" column="0" selection-start-line="66" selection-start-column="0" selection-end-line="66" selection-end-column="0" />
+            <state vertical-scroll-proportion="-12.4" vertical-offset="1098" max-vertical-offset="1560">
+              <caret line="98" column="0" selection-start-line="98" selection-start-column="0" selection-end-line="98" selection-end-column="0" />
               <folding />
             </state>
           </provider>
@@ -43,11 +46,11 @@
           </provider>
         </entry>
       </file>
-      <file leaf-file-name="1999SanFrancisco.md" pinned="false" current-in-tab="false">
-        <entry file="file://$PROJECT_DIR$/content/holidays/1999SanFrancisco.md">
+      <file leaf-file-name="2006Venice.md" pinned="false" current-in-tab="false">
+        <entry file="file://$PROJECT_DIR$/content/holidays/2006Venice.md">
           <provider selected="true" editor-type-id="text-editor">
-            <state vertical-scroll-proportion="32.6" vertical-offset="4038" max-vertical-offset="4395">
-              <caret line="204" column="0" selection-start-line="204" selection-start-column="0" selection-end-line="204" selection-end-column="0" />
+            <state vertical-scroll-proportion="31.6" vertical-offset="2658" max-vertical-offset="3075">
+              <caret line="114" column="0" selection-start-line="114" selection-start-column="0" selection-end-line="114" selection-end-column="0" />
               <folding />
             </state>
           </provider>
@@ -56,11 +59,11 @@
           </provider>
         </entry>
       </file>
-      <file leaf-file-name="2001SwissCottageWolvetonGatehouse.md" pinned="false" current-in-tab="false">
-        <entry file="file://$PROJECT_DIR$/content/holidays/2001SwissCottageWolvetonGatehouse.md">
+      <file leaf-file-name="2003WoodspringPriory.md" pinned="false" current-in-tab="false">
+        <entry file="file://$PROJECT_DIR$/content/holidays/2003WoodspringPriory.md">
           <provider selected="true" editor-type-id="text-editor">
-            <state vertical-scroll-proportion="19.1" vertical-offset="2163" max-vertical-offset="2520">
-              <caret line="106" column="0" selection-start-line="106" selection-start-column="0" selection-end-line="106" selection-end-column="0" />
+            <state vertical-scroll-proportion="17.1" vertical-offset="1653" max-vertical-offset="2070">
+              <caret line="76" column="0" selection-start-line="76" selection-start-column="0" selection-end-line="76" selection-end-column="0" />
               <folding />
             </state>
           </provider>
@@ -69,11 +72,76 @@
           </provider>
         </entry>
       </file>
-      <file leaf-file-name="2002ThailandCambodia.md" pinned="false" current-in-tab="true">
-        <entry file="file://$PROJECT_DIR$/content/holidays/2002ThailandCambodia.md">
+      <file leaf-file-name="2010SriLanka.md" pinned="false" current-in-tab="false">
+        <entry file="file://$PROJECT_DIR$/content/holidays/2010SriLanka.md">
           <provider selected="true" editor-type-id="text-editor">
-            <state vertical-scroll-proportion="0.16806723" vertical-offset="0" max-vertical-offset="13470">
-              <caret line="4" column="0" selection-start-line="4" selection-start-column="0" selection-end-line="4" selection-end-column="0" />
+            <state vertical-scroll-proportion="24.1" vertical-offset="2553" max-vertical-offset="2910">
+              <caret line="122" column="0" selection-start-line="122" selection-start-column="0" selection-end-line="122" selection-end-column="0" />
+              <folding />
+            </state>
+          </provider>
+          <provider editor-type-id="MarkdownPreviewEditor">
+            <state />
+          </provider>
+        </entry>
+      </file>
+      <file leaf-file-name="2012LasVegasKeyWest.md" pinned="false" current-in-tab="false">
+        <entry file="file://$PROJECT_DIR$/content/holidays/2012LasVegasKeyWest.md">
+          <provider selected="true" editor-type-id="text-editor">
+            <state vertical-scroll-proportion="42.1" vertical-offset="4818" max-vertical-offset="5175">
+              <caret line="237" column="0" selection-start-line="237" selection-start-column="0" selection-end-line="237" selection-end-column="0" />
+              <folding />
+            </state>
+          </provider>
+          <provider editor-type-id="MarkdownPreviewEditor">
+            <state />
+          </provider>
+        </entry>
+      </file>
+      <file leaf-file-name="2014Mojacar.md" pinned="false" current-in-tab="false">
+        <entry file="file://$PROJECT_DIR$/content/holidays/2014Mojacar.md">
+          <provider selected="true" editor-type-id="text-editor">
+            <state vertical-scroll-proportion="-1.0" vertical-offset="0" max-vertical-offset="1950">
+              <caret line="2" column="22" selection-start-line="2" selection-start-column="22" selection-end-line="2" selection-end-column="22" />
+              <folding />
+            </state>
+          </provider>
+          <provider editor-type-id="MarkdownPreviewEditor">
+            <state />
+          </provider>
+        </entry>
+      </file>
+      <file leaf-file-name="2014Cyprus.md" pinned="false" current-in-tab="false">
+        <entry file="file://$PROJECT_DIR$/content/holidays/2014Cyprus.md">
+          <provider selected="true" editor-type-id="text-editor">
+            <state vertical-scroll-proportion="3.6" vertical-offset="1563" max-vertical-offset="1980">
+              <caret line="97" column="0" selection-start-line="97" selection-start-column="0" selection-end-line="97" selection-end-column="0" />
+              <folding />
+            </state>
+          </provider>
+          <provider editor-type-id="MarkdownPreviewEditor">
+            <state />
+          </provider>
+        </entry>
+      </file>
+      <file leaf-file-name="2011Florida.md" pinned="false" current-in-tab="false">
+        <entry file="file://$PROJECT_DIR$/content/holidays/2011Florida.md">
+          <provider selected="true" editor-type-id="text-editor">
+            <state vertical-scroll-proportion="23.6" vertical-offset="1428" max-vertical-offset="1845">
+              <caret line="48" column="0" selection-start-line="48" selection-start-column="0" selection-end-line="48" selection-end-column="0" />
+              <folding />
+            </state>
+          </provider>
+          <provider editor-type-id="MarkdownPreviewEditor">
+            <state />
+          </provider>
+        </entry>
+      </file>
+      <file leaf-file-name="2012MackintoshBuilding.md" pinned="false" current-in-tab="true">
+        <entry file="file://$PROJECT_DIR$/content/holidays/2012MackintoshBuilding.md">
+          <provider selected="true" editor-type-id="text-editor">
+            <state vertical-scroll-proportion="0.7478992" vertical-offset="2148" max-vertical-offset="2505">
+              <caret line="96" column="0" selection-start-line="96" selection-start-column="0" selection-end-line="96" selection-end-column="0" />
               <folding />
             </state>
           </provider>
@@ -90,13 +158,6 @@
   <component name="IdeDocumentHistory">
     <option name="CHANGED_PATHS">
       <list>
-        <option value="$PROJECT_DIR$/public/post/DanscombeMine/index.html" />
-        <option value="$PROJECT_DIR$/public/index.xml" />
-        <option value="$PROJECT_DIR$/content/holidays/Mojacar" />
-        <option value="$PROJECT_DIR$/content/holidays/EuropeRoadTrip.md" />
-        <option value="$PROJECT_DIR$/content/holidays/DanscombeMine.md" />
-        <option value="$PROJECT_DIR$/content/holidays/Mojacar.md" />
-        <option value="$PROJECT_DIR$/README.md" />
         <option value="$PROJECT_DIR$/public/README.md" />
         <option value="$PROJECT_DIR$/deploy.sh" />
         <option value="$PROJECT_DIR$/public/holidays/index.html" />
@@ -141,6 +202,13 @@
         <option value="$PROJECT_DIR$/content/holidays/1998StLucia.md" />
         <option value="$PROJECT_DIR$/content/holidays/2001SwissCottageWolvetonGatehouse.md" />
         <option value="$PROJECT_DIR$/content/holidays/2002ThailandCambodia.md" />
+        <option value="$PROJECT_DIR$/content/holidays/2002TheOldPlaceofMonreith.md" />
+        <option value="$PROJECT_DIR$/content/holidays/2006TheOldVicarage.md" />
+        <option value="$PROJECT_DIR$/content/holidays/2004ThePineapple.md" />
+        <option value="$PROJECT_DIR$/content/holidays/2006Venice.md" />
+        <option value="$PROJECT_DIR$/content/holidays/2003WoodspringPriory.md" />
+        <option value="$PROJECT_DIR$/content/holidays/2011Florida.md" />
+        <option value="$PROJECT_DIR$/content/holidays/2012MackintoshBuilding.md" />
       </list>
     </option>
   </component>
@@ -393,7 +461,13 @@
       <option name="project" value="LOCAL" />
       <updated>1440782854999</updated>
     </task>
-    <option name="localTasksCounter" value="12" />
+    <task id="LOCAL-00012" summary="More Holidays&#10;">
+      <created>1441126613439</created>
+      <option name="number" value="00012" />
+      <option name="project" value="LOCAL" />
+      <updated>1441126613440</updated>
+    </task>
+    <option name="localTasksCounter" value="13" />
     <servers />
   </component>
   <component name="TodoView" selected-index="0">
@@ -420,6 +494,7 @@
     <frame x="0" y="23" width="1280" height="712" extended-state="6" />
     <editor active="false" />
     <layout>
+      <window_info id="Messages" active="false" anchor="bottom" auto_hide="false" internal_type="DOCKED" type="DOCKED" visible="false" weight="0.32903227" sideWeight="0.5" order="7" side_tool="false" content_ui="tabs" />
       <window_info id="Changes" active="false" anchor="bottom" auto_hide="false" internal_type="DOCKED" type="DOCKED" visible="false" weight="0.3279743" sideWeight="0.5" order="7" side_tool="false" content_ui="tabs" />
       <window_info id="Terminal" active="false" anchor="bottom" auto_hide="false" internal_type="DOCKED" type="DOCKED" visible="true" weight="0.33064517" sideWeight="0.49960285" order="7" side_tool="false" content_ui="tabs" />
       <window_info id="TODO" active="false" anchor="bottom" auto_hide="false" internal_type="DOCKED" type="DOCKED" visible="false" weight="0.32903227" sideWeight="0.5" order="6" side_tool="false" content_ui="tabs" />
@@ -434,7 +509,6 @@
       <window_info id="Find" active="false" anchor="bottom" auto_hide="false" internal_type="DOCKED" type="DOCKED" visible="false" weight="0.33" sideWeight="0.5" order="1" side_tool="false" content_ui="tabs" />
       <window_info id="Ant Build" active="false" anchor="right" auto_hide="false" internal_type="DOCKED" type="DOCKED" visible="false" weight="0.25" sideWeight="0.5" order="1" side_tool="false" content_ui="tabs" />
       <window_info id="Debug" active="false" anchor="bottom" auto_hide="false" internal_type="DOCKED" type="DOCKED" visible="false" weight="0.4" sideWeight="0.5" order="3" side_tool="false" content_ui="tabs" />
-      <window_info id="Messages" active="false" anchor="bottom" auto_hide="false" internal_type="DOCKED" type="DOCKED" visible="false" weight="0.32903227" sideWeight="0.5" order="7" side_tool="false" content_ui="tabs" />
       <window_info id="Commander" active="false" anchor="right" auto_hide="false" internal_type="SLIDING" type="SLIDING" visible="false" weight="0.4" sideWeight="0.5" order="0" side_tool="false" content_ui="tabs" />
       <window_info id="Run" active="false" anchor="bottom" auto_hide="false" internal_type="DOCKED" type="DOCKED" visible="false" weight="0.33" sideWeight="0.5" order="2" side_tool="false" content_ui="tabs" />
       <window_info id="Inspection" active="false" anchor="bottom" auto_hide="false" internal_type="DOCKED" type="DOCKED" visible="false" weight="0.4" sideWeight="0.5" order="5" side_tool="false" content_ui="tabs" />
@@ -464,77 +538,16 @@
     <MESSAGE value="Update hosting readme" />
     <MESSAGE value="More Holidays and CNAME setup for git.andrewandlaura.com" />
     <MESSAGE value="More Holidays&#10;Make base URL git.andrewandlaura.com&#10;" />
-    <MESSAGE value="More Holidays&#10;" />
     <MESSAGE value="More Holidays&#10;Flickr set short code&#10;" />
     <MESSAGE value="More Holidays&#10;A little bit of styling&#10;" />
-    <option name="LAST_COMMIT_MESSAGE" value="More Holidays&#10;A little bit of styling&#10;" />
+    <MESSAGE value="More Holidays&#10;" />
+    <option name="LAST_COMMIT_MESSAGE" value="More Holidays&#10;" />
   </component>
   <component name="XDebuggerManager">
     <breakpoint-manager />
     <watches-manager />
   </component>
   <component name="editorHistoryManager">
-    <entry file="file://$PROJECT_DIR$/content/holidays/2014EuropeRoadTrip.md">
-      <provider selected="true" editor-type-id="text-editor">
-        <state vertical-scroll-proportion="0.0" vertical-offset="645" max-vertical-offset="4095">
-          <caret line="43" column="0" selection-start-line="43" selection-start-column="0" selection-end-line="43" selection-end-column="0" />
-        </state>
-      </provider>
-      <provider editor-type-id="MarkdownPreviewEditor">
-        <state />
-      </provider>
-    </entry>
-    <entry file="file://$PROJECT_DIR$/layouts/_default/list.html">
-      <provider selected="true" editor-type-id="text-editor">
-        <state vertical-scroll-proportion="0.0" vertical-offset="0" max-vertical-offset="375">
-          <caret line="0" column="0" selection-start-line="0" selection-start-column="0" selection-end-line="0" selection-end-column="0" />
-        </state>
-      </provider>
-    </entry>
-    <entry file="file://$PROJECT_DIR$/layouts/_default/single.html">
-      <provider selected="true" editor-type-id="text-editor">
-        <state vertical-scroll-proportion="0.0" vertical-offset="135" max-vertical-offset="405">
-          <caret line="9" column="21" selection-start-line="9" selection-start-column="21" selection-end-line="9" selection-end-column="21" />
-        </state>
-      </provider>
-    </entry>
-    <entry file="file://$PROJECT_DIR$/content/holidays/2014Mojacar.md">
-      <provider selected="true" editor-type-id="text-editor">
-        <state vertical-scroll-proportion="0.0" vertical-offset="360" max-vertical-offset="1350">
-          <caret line="24" column="0" selection-start-line="24" selection-start-column="0" selection-end-line="24" selection-end-column="0" />
-        </state>
-      </provider>
-      <provider editor-type-id="MarkdownPreviewEditor">
-        <state />
-      </provider>
-    </entry>
-    <entry file="file://$PROJECT_DIR$/content/holidays/2015DanscombeMine.md">
-      <provider selected="true" editor-type-id="text-editor">
-        <state vertical-scroll-proportion="0.0" vertical-offset="300" max-vertical-offset="1260">
-          <caret line="20" column="19" selection-start-line="20" selection-start-column="19" selection-end-line="20" selection-end-column="19" />
-        </state>
-      </provider>
-      <provider editor-type-id="MarkdownPreviewEditor">
-        <state />
-      </provider>
-    </entry>
-    <entry file="file://$PROJECT_DIR$/content/holidays/2014EuropeRoadTrip.md">
-      <provider selected="true" editor-type-id="text-editor">
-        <state vertical-scroll-proportion="0.0" vertical-offset="645" max-vertical-offset="4095">
-          <caret line="43" column="0" selection-start-line="43" selection-start-column="0" selection-end-line="43" selection-end-column="0" />
-        </state>
-      </provider>
-      <provider editor-type-id="MarkdownPreviewEditor">
-        <state />
-      </provider>
-    </entry>
-    <entry file="file://$PROJECT_DIR$/layouts/partials/nav.html">
-      <provider selected="true" editor-type-id="text-editor">
-        <state vertical-scroll-proportion="0.0" vertical-offset="0" max-vertical-offset="387">
-          <caret line="0" column="0" selection-start-line="0" selection-start-column="0" selection-end-line="0" selection-end-column="0" />
-        </state>
-      </provider>
-    </entry>
     <entry file="file://$PROJECT_DIR$/layouts/_default/list.html">
       <provider selected="true" editor-type-id="text-editor">
         <state vertical-scroll-proportion="0.0" vertical-offset="0" max-vertical-offset="387">
@@ -603,30 +616,10 @@
         <state />
       </provider>
     </entry>
-    <entry file="file://$PROJECT_DIR$/content/holidays/2014Mojacar.md">
-      <provider selected="true" editor-type-id="text-editor">
-        <state vertical-scroll-proportion="0.083798885" vertical-offset="0" max-vertical-offset="1320">
-          <caret line="2" column="22" selection-start-line="2" selection-start-column="22" selection-end-line="2" selection-end-column="22" />
-        </state>
-      </provider>
-      <provider editor-type-id="MarkdownPreviewEditor">
-        <state />
-      </provider>
-    </entry>
     <entry file="file://$PROJECT_DIR$/content/holidays/2015DanscombeMine.md">
       <provider selected="true" editor-type-id="text-editor">
         <state vertical-scroll-proportion="0.083798885" vertical-offset="0" max-vertical-offset="1230">
           <caret line="2" column="29" selection-start-line="2" selection-start-column="29" selection-end-line="2" selection-end-column="29" />
-        </state>
-      </provider>
-      <provider editor-type-id="MarkdownPreviewEditor">
-        <state />
-      </provider>
-    </entry>
-    <entry file="file://$PROJECT_DIR$/content/holidays/2014Cyprus.md">
-      <provider selected="true" editor-type-id="text-editor">
-        <state vertical-scroll-proportion="2.1731844" vertical-offset="1202" max-vertical-offset="1560">
-          <caret line="98" column="0" selection-start-line="98" selection-start-column="0" selection-end-line="98" selection-end-column="0" />
         </state>
       </provider>
       <provider editor-type-id="MarkdownPreviewEditor">
@@ -650,16 +643,6 @@
         </state>
       </provider>
     </entry>
-    <entry file="file://$PROJECT_DIR$/content/holidays/2012LasVegasKeyWest.md">
-      <provider selected="true" editor-type-id="text-editor">
-        <state vertical-scroll-proportion="14.287709" vertical-offset="0" max-vertical-offset="5205">
-          <caret line="237" column="0" selection-start-line="237" selection-start-column="0" selection-end-line="237" selection-end-column="0" />
-        </state>
-      </provider>
-      <provider editor-type-id="MarkdownPreviewEditor">
-        <state />
-      </provider>
-    </entry>
     <entry file="file://$PROJECT_DIR$/config.toml">
       <provider selected="true" editor-type-id="text-editor">
         <state vertical-scroll-proportion="0.11597938" vertical-offset="0" max-vertical-offset="388">
@@ -681,16 +664,6 @@
       <provider selected="true" editor-type-id="text-editor">
         <state vertical-scroll-proportion="-79.4" vertical-offset="18" max-vertical-offset="2490">
           <caret line="160" column="0" selection-start-line="160" selection-start-column="0" selection-end-line="160" selection-end-column="0" />
-        </state>
-      </provider>
-      <provider editor-type-id="MarkdownPreviewEditor">
-        <state />
-      </provider>
-    </entry>
-    <entry file="file://$PROJECT_DIR$/content/holidays/2010SriLanka.md">
-      <provider selected="true" editor-type-id="text-editor">
-        <state vertical-scroll-proportion="70.6" vertical-offset="2643" max-vertical-offset="3000">
-          <caret line="35" column="33" selection-start-line="35" selection-start-column="33" selection-end-line="35" selection-end-column="33" />
         </state>
       </provider>
       <provider editor-type-id="MarkdownPreviewEditor">
@@ -889,17 +862,6 @@
         <state />
       </provider>
     </entry>
-    <entry file="file://$PROJECT_DIR$/content/holidays/2000Florida.md">
-      <provider selected="true" editor-type-id="text-editor">
-        <state vertical-scroll-proportion="116.1" vertical-offset="9363" max-vertical-offset="9720">
-          <caret line="392" column="0" selection-start-line="388" selection-start-column="0" selection-end-line="392" selection-end-column="0" />
-          <folding />
-        </state>
-      </provider>
-      <provider editor-type-id="MarkdownPreviewEditor">
-        <state />
-      </provider>
-    </entry>
     <entry file="file://$PROJECT_DIR$/content/holidays/1998StLucia.md">
       <provider selected="true" editor-type-id="text-editor">
         <state vertical-scroll-proportion="7.1" vertical-offset="1203" max-vertical-offset="1620">
@@ -933,10 +895,142 @@
         <state />
       </provider>
     </entry>
+    <entry file="file://$PROJECT_DIR$/content/holidays/2006TheOldVicarage.md">
+      <provider selected="true" editor-type-id="text-editor">
+        <state vertical-scroll-proportion="2.6890757" vertical-offset="0" max-vertical-offset="1050">
+          <caret line="40" column="0" selection-start-line="40" selection-start-column="0" selection-end-line="40" selection-end-column="0" />
+          <folding />
+        </state>
+      </provider>
+      <provider editor-type-id="MarkdownPreviewEditor">
+        <state />
+      </provider>
+    </entry>
+    <entry file="file://$PROJECT_DIR$/content/holidays/2002TheOldPlaceofMonreith.md">
+      <provider selected="true" editor-type-id="text-editor">
+        <state vertical-scroll-proportion="0.16806723" vertical-offset="0" max-vertical-offset="1410">
+          <caret line="4" column="0" selection-start-line="4" selection-start-column="0" selection-end-line="4" selection-end-column="0" />
+          <folding />
+        </state>
+      </provider>
+      <provider editor-type-id="MarkdownPreviewEditor">
+        <state />
+      </provider>
+    </entry>
+    <entry file="file://$PROJECT_DIR$/content/holidays/2004ThePineapple.md">
+      <provider selected="true" editor-type-id="text-editor">
+        <state vertical-scroll-proportion="-12.4" vertical-offset="1098" max-vertical-offset="2280">
+          <caret line="98" column="0" selection-start-line="98" selection-start-column="0" selection-end-line="98" selection-end-column="0" />
+          <folding />
+        </state>
+      </provider>
+      <provider editor-type-id="MarkdownPreviewEditor">
+        <state />
+      </provider>
+    </entry>
+    <entry file="file://$PROJECT_DIR$/content/holidays/2006Venice.md">
+      <provider selected="true" editor-type-id="text-editor">
+        <state vertical-scroll-proportion="31.6" vertical-offset="2658" max-vertical-offset="3075">
+          <caret line="114" column="0" selection-start-line="114" selection-start-column="0" selection-end-line="114" selection-end-column="0" />
+          <folding />
+        </state>
+      </provider>
+      <provider editor-type-id="MarkdownPreviewEditor">
+        <state />
+      </provider>
+    </entry>
     <entry file="file://$PROJECT_DIR$/content/holidays/2002ThailandCambodia.md">
       <provider selected="true" editor-type-id="text-editor">
-        <state vertical-scroll-proportion="0.16806723" vertical-offset="0" max-vertical-offset="13470">
-          <caret line="4" column="0" selection-start-line="4" selection-start-column="0" selection-end-line="4" selection-end-column="0" />
+        <state vertical-scroll-proportion="0.7478992" vertical-offset="7533" max-vertical-offset="7890">
+          <caret line="311" column="46" selection-start-line="311" selection-start-column="46" selection-end-line="311" selection-end-column="46" />
+          <folding />
+        </state>
+      </provider>
+      <provider editor-type-id="MarkdownPreviewEditor">
+        <state />
+      </provider>
+    </entry>
+    <entry file="file://$PROJECT_DIR$/content/holidays/2000Florida.md">
+      <provider selected="true" editor-type-id="text-editor">
+        <state vertical-scroll-proportion="0.7478992" vertical-offset="9363" max-vertical-offset="9720">
+          <caret line="392" column="0" selection-start-line="388" selection-start-column="0" selection-end-line="392" selection-end-column="0" />
+          <folding />
+        </state>
+      </provider>
+      <provider editor-type-id="MarkdownPreviewEditor">
+        <state />
+      </provider>
+    </entry>
+    <entry file="file://$PROJECT_DIR$/content/holidays/2003WoodspringPriory.md">
+      <provider selected="true" editor-type-id="text-editor">
+        <state vertical-scroll-proportion="17.1" vertical-offset="1653" max-vertical-offset="2070">
+          <caret line="76" column="0" selection-start-line="76" selection-start-column="0" selection-end-line="76" selection-end-column="0" />
+          <folding />
+        </state>
+      </provider>
+      <provider editor-type-id="MarkdownPreviewEditor">
+        <state />
+      </provider>
+    </entry>
+    <entry file="file://$PROJECT_DIR$/content/holidays/2010SriLanka.md">
+      <provider selected="true" editor-type-id="text-editor">
+        <state vertical-scroll-proportion="24.1" vertical-offset="2553" max-vertical-offset="2910">
+          <caret line="122" column="0" selection-start-line="122" selection-start-column="0" selection-end-line="122" selection-end-column="0" />
+          <folding />
+        </state>
+      </provider>
+      <provider editor-type-id="MarkdownPreviewEditor">
+        <state />
+      </provider>
+    </entry>
+    <entry file="file://$PROJECT_DIR$/content/holidays/2012LasVegasKeyWest.md">
+      <provider selected="true" editor-type-id="text-editor">
+        <state vertical-scroll-proportion="42.1" vertical-offset="4818" max-vertical-offset="5175">
+          <caret line="237" column="0" selection-start-line="237" selection-start-column="0" selection-end-line="237" selection-end-column="0" />
+          <folding />
+        </state>
+      </provider>
+      <provider editor-type-id="MarkdownPreviewEditor">
+        <state />
+      </provider>
+    </entry>
+    <entry file="file://$PROJECT_DIR$/content/holidays/2014Mojacar.md">
+      <provider selected="true" editor-type-id="text-editor">
+        <state vertical-scroll-proportion="-1.0" vertical-offset="0" max-vertical-offset="1950">
+          <caret line="2" column="22" selection-start-line="2" selection-start-column="22" selection-end-line="2" selection-end-column="22" />
+          <folding />
+        </state>
+      </provider>
+      <provider editor-type-id="MarkdownPreviewEditor">
+        <state />
+      </provider>
+    </entry>
+    <entry file="file://$PROJECT_DIR$/content/holidays/2014Cyprus.md">
+      <provider selected="true" editor-type-id="text-editor">
+        <state vertical-scroll-proportion="3.6" vertical-offset="1563" max-vertical-offset="1980">
+          <caret line="97" column="0" selection-start-line="97" selection-start-column="0" selection-end-line="97" selection-end-column="0" />
+          <folding />
+        </state>
+      </provider>
+      <provider editor-type-id="MarkdownPreviewEditor">
+        <state />
+      </provider>
+    </entry>
+    <entry file="file://$PROJECT_DIR$/content/holidays/2011Florida.md">
+      <provider selected="true" editor-type-id="text-editor">
+        <state vertical-scroll-proportion="23.6" vertical-offset="1428" max-vertical-offset="1845">
+          <caret line="48" column="0" selection-start-line="48" selection-start-column="0" selection-end-line="48" selection-end-column="0" />
+          <folding />
+        </state>
+      </provider>
+      <provider editor-type-id="MarkdownPreviewEditor">
+        <state />
+      </provider>
+    </entry>
+    <entry file="file://$PROJECT_DIR$/content/holidays/2012MackintoshBuilding.md">
+      <provider selected="true" editor-type-id="text-editor">
+        <state vertical-scroll-proportion="0.7478992" vertical-offset="2148" max-vertical-offset="2505">
+          <caret line="96" column="0" selection-start-line="96" selection-start-column="0" selection-end-line="96" selection-end-column="0" />
           <folding />
         </state>
       </provider>

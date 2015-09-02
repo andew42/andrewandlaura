@@ -1,0 +1,98 @@
++++
+date = "2004-02-02T00:00:00+00:00"
+title = "2004 The Pineapple"
++++
+
+Monday 2nd February
+=
+We travelled up to the Pineapple today in Andrew’s new navy Micra, stopping only twice at motorway services on the way.
+
+The Pineapple is a spectacular folly, built by John Murray the 4th Earl of Dunmore. He acquired the Elphinestone estate in 1754, two years before he succeeded to his title. He landscaped the garden and built the small central pavilion of just one storey with a projecting portico in the centre in 1761. He then added the Pineapple to the top during the 18th century, he exact date unfortunately is unknown, but probably around 1777.
+
+Much later in 1973 the Earl and Countess of Perth gave The Pineapple and it’s gardens to the National Trust for Scotland and in the same year the Landmark Trust took a lease on it.
+
+Sadly nothing else is really known about The Pineapple’s history as it was apparently an embarrassment to the people in the area at the time, so no one bothered to record anything about it.
+
+We love it – it stands surrounded by fields, with it’s walled garden of fruit trees on the pavilion side and the lovely Fintry and Kilsyth hills to the other side.
+
+Oak and silver birch trees surround the parking area and the snowdrops are all in bloom beneath them. The little one track lane leading up to the Pineapple is in the pink pebbles used so much in Scotland.
+
+The Pineapple is the central structure of the building with a flight of steps leading up to it. A large door leads inside the Pineapple which is a lovely high domed sun room, wonderful to spend time in the summer I would think, but a bit cold in February. In the evening the only lamp in there lights up the outside of the Pineapple beautifully.
+
+To either side of the Pineapple are the aforementioned one storey buildings, on the left hand side is the east wing which houses the two bedrooms and the bathroom, all in typical Landmark style with old wooden floors and lovely old fashioned furniture in the bedrooms.
+
+The west wing houses the kitchen, dining room and living room, again these are wooden floored and the living room has a massive ornate old fireplace, lovely to snuggle up beside in the evening with a good book, a glass of wine and someone to cuddle. All the rooms have lovely views over the walled garden.
+
+It seemed strange on our first evening here sitting cosily in front of the beautiful fire to have to don shoes and a coat to go outside and walk around the Pineapple to the other wing to go to the toilet or to go to bed, but it’s surprising how quickly you get used to this. It is so tranquil here, the only sounds are from the birds.
+
+Airth the nearest town seems to have nothing to offer, apart from the Pineapple and an hotel a mile or so up the road called Airth Castle, this sits at the top of a hill and is floodlit in the evening giving it a haunted castle air.
+
+Otherwise all we found were a corner shop and a mini mart...
+
+Tuesday 3rd February
+=
+Today we went to Edinburgh and spent the day happily wandering. We visited the castle first then had lunch at a pub called the Deacon Brodie, where a cheeky young barman talked me into having a pint of 80/-‘s instead of a half - to keep out the cold.
+
+The story of Deacon Brodie is interesting as he was the person Lewis Carroll based Dr. Jekyll and Mr. Hyde on.
+
+We caught a tour bus out to Holyrood House which was closed, alighted in Princes Street and wandered round the new shopping precinct, drank coffee then walked for miles admiring the lovely architecture and visited Greyfriars Bobby too. The new Scottish museum building is absolutely stunning, not open yet but a must see on our next trip.
+
+We found our way out of Edinburgh easily and located an Asda where we bought everything deemed necessary for the rest of our stay.
+
+Back at the Pineapple we coped with oven less {must report the oven not working}dinner and enjoyed steak and wine in front of the fire, then perused possible trips for tomorrow.
+
+Wednesday 4th February
+=
+Today we have decided to go up to Kinross and see where we go from there. We stopped at a garden centre and bought Scottish bluebells, lilies and Lucifer crocosmia to plant at the Elms, and two Rennie Mackintosh mugs to add to my collection.
+
+We stopped again at Loch Leven and took some photo’s of the Loch, the swans and Castle Leven. There is a ferry over to the castle, but it doesn’t run in winter.
+
+We parked up in Kinross and went for a wander, then had a pot of tea in Cafe 98, a nice little place where all the food is home made.
+
+We drove on through Cupar, a lovely old town with a pub with the wonderful name of The Drookit Dug.
+
+And so to St. Andrew’s one of Andrew’s favourite places. We walked to the sea through the ancient cathedral ruins and graveyard with fantastically ornate Gothic headstones. Then meandered along the cliff path to the castle ruins, and into town passing all the gorgeous old turreted buildings that are mostly now a part of the university.
+
+As the heavens opened we rushed into the central pub for refuge and some more 80/-‘s accompanied by steak pie for Andrew and nachos for me, another place we’d recommend, the beer, food and atmosphere were all great.
+
+Warm and dry again, we ventured out to explore when the rain stopped St. Andrew’s is a lovely old town with some great shops and amazing architecture, quaint old buildings and the sea too. What more could you want, except maybe the sunshine?
+
+Back the scenic route to the Pineapple for lamb medallions, wine and a roaring fire, bliss.
+
+Thursday 5th February
+=
+It’s Glasgow day today, I am so excited about being in my home town. The last twice we’ve been in Scotland we’ve been nowhere near Glasgow. We parked up in the new Buchanan Galleries and walk down to St. Georges Cross to catch a tour bus around the city, the cosiest way to see a lot of Glasgow on a cold wet day.
+
+Back off the bus we tried out the Buchanan St. tearooms but, much preferred the Willow tearooms in Sauchiehall St.
+
+We walked up to Hill Street, where I spent my childhood, this is now a conservation area so hopefully will not change too much anymore. We wend down to Kelvingrove Park, although we knew that the Art Gallery and Museum is shut for renovations till 2006, and the rain caught us again.
+
+So turned around and headed back to Sauchiehall St. to Absolution, a great restaurant where we dried out while munching our way through some excellent fajitas and sticky toffee pudding for Andrew in case he’d not had enough to eat, and excellent coffee too. I found an old fashioned cigar shop and bought some Sobranie cocktail cigarettes for old times sake.
+
+We hurried back to the Buchanan Galleries in the pouring rain,
+
+Andrew pulled an amazing trip cum stumble, cantering down the street at high speed, We sat down in the shopping centre, he to recover from assuming he’d break a bone plus the camera, and me I’m afraid to wipe my tears of laughter and try to control the awful stitch in my side and the frequent snorts of hysterical giggles that recurred for quite some time afterwards – full of sympathy me!
+
+This shopping centre is brand new but could have been CMK, why do shopping centres all have the same chain shops these days? The individual shops are so much better and more fun!
+
+We bought Andrew some Australian red liquorice and a Scottish cookery book in Lakeland stores. Browsed a bit more then headed back to the Pineapple as dusk appeared. A pity that our day in Glasgow was the wettest we had, but I really enjoyed it anyway.
+
+Back at the Pineapple we ate pasta and salmon and spent our last evening curled up by the fire.
+
+During our perusal of the Landmark log books and places to visit locally we found the Falkirk Wheel, something I’d heard of and wanted to visit sometime when we were in the area, it was closed for a refit. It sounds great and is earmarked for next time...
+
+Friday 6th February
+=
+We did the usual tidy up and packing then went out to the back garden for a wander around as the sun is shining today. The Pavilion looks great in the sun so we took some pix. We are sad to leave this lovely Landmark, I'm sad to leave Scotland again too.
+
+We are heading for Scarborough for the weekend instead of going straight home and are looking forward to spending two days by the sea. We zoom off, the hills look glorious bathed in sunshine so I open the window to take some photo’s and hey presto our directions escape out of the window never to be seen again. Oh heavens, do I have the hotel details written down anywhere else?
+
+Andrew, thankfully is organised as usual, so all I have to do is map read all the way.
+
+We stopped at Annandale then continue till we reach Robin Hoods Bay where we parked at the top and walked, it’s a very steep road with no cars allowed, such a pretty village by the sea.
+
+We are booked to stay at Hackness Grange Hotel within the North Yorkshire Moors National Park. The pictures of it look stunning, surrounded by trees with a lake in front of the building. We arrived and a bored receptionist gives us half hearted directions to our suite. We dressed for dinner, found the bar and sat down, the service was almost as bad as the food and wine.
+
+Suffice to say that we checked out in the morning after an equally disastrous breakfast.
+
+We went to Scarborough, a place I have childhood memories of and found it hadn’t changed much. The castle sits on the hill, the old town still looks the same, the fairy lights on the trees in the park are still the same ones. Scarborough is still a lovely old seaside town. We decided to book up the Pigsty Landmark in Robin Hoods Bay soon, and we will explore this area more then...
