@@ -6,7 +6,7 @@ title = "2015 Danscombe Mine"
 Friday 7th August
 =
 
-Set off early for Danescombe Mine { our 22nd Landmark}, stopped at lovely services in Gloucester for breakfast & wander around the farm shop where we bought pretty leaf mug.
+Set off early for Danescombe Mine (our 22nd Landmark), stopped at lovely services in Gloucester for breakfast & wander around the farm shop where we bought pretty leaf mug.
 
 Headed to Torquay & parked up to have a coffee and a wander around. Bought a pair of black denim shorts & a lovely blue dress in the BHS sales. Walked to the harbour then & saw a funeral parking up by the sea!
 

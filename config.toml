@@ -1,3 +1,8 @@
 baseurl = "http://git.andrewandlaura.com"
 languageCode = "en-gb"
 title = "Andrew and Laura"
+SectionPagesMenu = "main"
+[[menu.main]]
+    name = "Our Holidays"
+    identifier = "holidays"
+    url = "/holidays/"
