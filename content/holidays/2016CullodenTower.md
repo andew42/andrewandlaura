@@ -1,0 +1,34 @@
++++
+date = "2016-02-12T00:00:00Z"
+title = "2016 Culloden Tower"
++++
+
+Friday 12th February
+=
+Off to spend our 9th wedding anniversary in the Culloden Tower, built in 1736! We're stopping off in Pontefract en route for lunch & a wander. Horrid place except for the stunningly beautiful All Saints church.
+We moved on & went to Richmond which is a lovely old  market town & very hilly. We had fish & chips for lunch & a little wander, then headed for the tower to unpack the car before dark. Persisting down so wet & cold 40 - 50 yard trek from car to tower.
+Culloden tower is gorgeous, but utterly freezing inside, so off out again for logs, kindling & firelighters.
+Back at the tower Andrew got the log burner going & we shut all the shutters. Later on I made salmon kedgeree for dinner & afterwards we sat by the fire with wine, beer, lovely chocolates that Andrew bought & music and read till bedtime.
+
+Saturday 13th February
+=
+Up early as we were both freezing all night in the bedroom at the top of the tower. Never known Andrew be cold in bed after the 1st 10 minutes before! I made coffee & we shivered through getting ready to go out.
+Andrew went out to try his new Phoenix Phantom 3 and I stayed inside & watched recording her flight up over the tower and surrounding fields while she took aerial photos.
+Afterwards we braved the steep hills into Richmond for breakfast at Pegleys and a wander around the market hall where Andrew bought me a beautiful old silver and abalone pendant on a delicate silver chain. We wandered around town shopping for essentials for staying in the tower, then the market for yummy local cheeses. In the garden shop we bought a red and a white Yorkshire rose bushes and some Miranda teddy bear lighters. Went into a fab homemade chocolate shop & bought more chocolate & a wonderful mocha coffee made with their own chocolate, grumpy mule coffee and coconut milk - best mocha I've ever had! Back to the tower in the rain to drop off shopping & get dry as it's rained off and on all morning.
+Sunny by 2pm so we went off to Ripon in the car for a wander. We bought 2 Metal Earth art models for Andrew and a gorgeous camellia bush, and had a look at the lovely old cathedral and a general wander. Lovely old buildings here, a pretty city.
+Back at Richmond we bought 4 more bags of logs then parked up for another look around. We found the lovely old church ruins and the 18th century theatre which you can't have a tour round till 21st March - a pity.
+Went for a drink in the Black Sheep pub then yummy dinner at the Taste of Thailand restaurant before returning to the tower. Andrew had bought me a gorgeous rainbow metal ( looks like titanium) clipper lighter at the petrol station whilst getting the logs!
+We lit the fire & relaxed with music & later had some of the lovely cheeses & chocolate. Decided to sleep in downstairs bedroom tonight as it's warmer & not 75 stairs down to the loo!!
+
+Sunday 14th February
+=
+I made coffee & we opened our lovely anniversary and Valentine cards to each other. Got bright sunshine and snow this morning. Sorted out & off now to Foss waterfall and the sea at Whitby. 11.42 we now have hailstones followed by snow!! 12.44pm we're through the snowstorm and into fabulous sun.
+The Foss waterfall was well worth visiting, really lovely in the sun.
+Onwards then to Whitby, where the world seems to have congregated! Andrew found a space in the fourth car park he tried, it's cold & windy 4C but the sun is shining. Went to Sanders Yard Bistro for lasagne & garlic bread for lunch then walked though the old town to the sea. Fiercely blowy, but lovely sea and great views of Whitby Abbey above us. There were 4 poor donkeys on the beach looking very miserable. By 3.50pm we have hailstones followed by snow again so time to go back to the car & our couple of hours journey back to Richmond. Middlesbrough where we first got snow this morning is now under a carpet of snow with sludgy roads.
+Back at the tower Andrew lit the fire & I sorted out our cheese & piscuits, wine & beer. We sat by the roaring fire with music and later rest of our chocolates reading & relaxing on our last evening in this gorgeous but freezing tower. Every room but this one with the fire constantly topped up with logs is freezing. Even with the fire my wine drops to the temperature of chilled lager so it's back to the kitchen to warm it in the microwave. Andrew has told me to remind him that this is our last holiday in Britain in winter, we've never been so constantly cold. I need to remind myself of Culloden Tower when I complain of how cold The Elms is in winter!
+
+Monday 15th February
+=
+Coffee, pack up & clean up as we have to leave the lovely frozen tower by 10am. All done & poor Andrew made several trips to the car, it's snowed again overnight and is very slippery. Our car skidded off the steep downhill drive & we ended up staying on the grass for rest of the downward journey after Andrew managed to stop the car. I took advantage of our stop for a photo of the tower & one of the castle in the snow. Went into Richmond then for a couple of pork pies for Grahame from the Noted Pie Shop that we'd been recommended by Linda the housekeeper. Andrew bought me a lovely bouquet of roses in the flower shop too, another Valentine prezzie - I'm so spoilt!!! Now in Costas for coffee before setting off. Richmond is a gorgeous little market town, we've really enjoyed being here.
+Stopped in Lincoln for lunch at Ole Ole tapas restaurant and had lovely lunch, a great glass of Tempranillo and illy coffee. Bailgate is a lovely old street with the cathedral on one side and the castle on the other. We strolled down the rest of it window shopping after lunch until we reached Imperial Teas of Lincoln where we bought a gorgeous elephant teapot and some Papua Bird of Paradise coffee which smells delicious!
+Back to the car then & headed for home, arriving at 5pm just in time to unpack the car before dark & get several tellings off from Kwanjai for deserting him again. Put my roses in a vase, they smell so beautiful, real old fashioned roses with such a strong scent - they are fantastic. 😄
