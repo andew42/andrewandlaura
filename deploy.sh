@@ -3,13 +3,13 @@
 echo -e "\033[0;32mDeploying updates to GitHub...\033[0m"
 
 # Remove existing files (in case we are deleting something)
-# rm -r public
+# rm -r ../andew42.github.io
 
 # Build the project (no theme)
 hugo
 
 # Go To Public folder and add changes to git
-cd public
+pushd ../andew42.github.io
 git add -A
 
 # Commit changes with command line message or default
@@ -23,4 +23,4 @@ git commit -m "$msg"
 git push origin master
 
 # Come Back
-cd ..
+popd

@@ -1,5 +1,13 @@
 #Hugo source for git.andrewandlaura.com
 
+##Clone
+git clone andrewandlaura and andew42.github.io into the same folder so they are sibling folders
+```bash
+ls .
+andrewandlaura
+andew42.github.io
+```
+
 ##Install Hugo
 ```bash
 brew update && brew install hugo
