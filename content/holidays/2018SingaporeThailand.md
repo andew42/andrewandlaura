@@ -1,0 +1,196 @@
+---
+title: "2018 Singapore and Thailand"
+date: 2018-06-22T00:00:00+00:00
+---
+
+Friday 22nd June
+=
+5.30am left home for Gatwick for 14 hour flight to Singapore!
+
+Saturday 23rd June
+=
+Landed Singapore 6.30am Singapore time & taxi to Scarlet Hotel to leave luggage until check in time at 2pm. Both totally knackered, but our room is not free.
+Wandered down to Food Street & found the Old Coffee Shop for iced coffee & a cig. No smoking allowed in most areas here.
+Had a walk around town & had lunch at the Manchurian restaurant in Food Street later on. We are in the Chinatown area so exploring locally.
+Back to the hotel & sat in lounge area for an hour till our room was ready & it’s definitely siesta time!
+Woke up slightly refreshed & went out to find dinner.
+Had a drink at a little bar 29 Ann Siang Road, then dinner at Blue Label Pizza & wine round the corner from the hotel. Fabulous pizza, they ferment the dough & it was really crunchy and tasty. Lovely glass of “No Regrets” cab sav wine.
+Both still exhausted so after a glass of wine on our balcony (which is almost larger than our room) it was time for bed.
+
+Sunday 24th June
+=
+Slept through until 10.10am then made coffee & sat out on the balcony to enjoy it. Refreshed & showered we are off out.
+After a wander around the weekend market where we bought me a lovely blue with beige pattern summer dress we are back at the coffee shop for iced coffee.
+Found a fridge magnet & bought a tin of pineapple tarts, also found a little bag for the evening & bought one each for Mol & Amber. Took all back to Scarlet then we took the metro to the Botanic Gardens this is a World Heritage Site now. Wandered for miles around the lovely gardens, especially the Orchid Garden where the orchids grow outside, lots of them planted in trellised rows. Utterly stunning, so loved this garden! At around 7pm we left and took the metro to Downtown stop and walked all along the bay to the marina where we watched a fabulous water show.
+Tried & failed to go to the sky garden so wandered back to the marina and had an excellent dinner at ??????? A wagu burger for Andrew & poached salmon with spinach for me.
+Now exhausted (over 20 thousand steps) we returned to Scarlet for a nightcap & bed.
+
+Monday 25th June
+=
+Slept badly then till 10am after coffee we went out to the Buddha Tooth Relic Temple in Chinatown. It’s a beautiful temple over 4 floors with a lovely roof garden. Spent a while walking around it, well worth a visit.
+Had lunch at My Little Tapas Bar, nice food near the Scarlet. Shortly after that we returned to the hotel for a siesta as I was still so tired.
+Out again at 3.30ish to visit The Gardens By The Bay which are utterly amazing. We went into the Cloud Forest Dome first, which has a stunning huge waterfall surrounded by beautiful plants growing up a made made mountain. It’s the largest man made waterfall in the world. 
+Loads of rainforest trees & plants it is surreal. We wandered around the bottom viewing it from all angles before taking the lift up 7 floors and the stairs to the top to 2000 metres above sea level. From the top there is a walkway through the treetops & plants down to the inside of the waterfall with fabulous plants all the way round. Stunning views over Singapore too. Round and down to the Crystal Cavern and eventually to the Secret Garden at the bottom.
+This place is fabulous, I would come here just to visit this garden!
+The sculptures are wonderful too made of wood, stone ceramics & plastic they are all incredible. A lovely multi coloured orchid is by an English sculptor. 
+We arrived at the Flower Dome at 7.30pm, rather dark by now, which was beautiful too, but not as lovely as the Cloud Forest. The lighting was well placed luckily.
+Planting from Australia, South Africa & California were lovely with beautiful trees. The main exhibition was of begonias - not a favourite of mine but the large ones were lovely.
+It was time for the Super Tree Grove evening performance then where these incredible man made trees have a light and music festival every evening. 
+Utterly indescribable, fabulous classical music - many goosebump favourites of mine with the beautiful trees doing a colour light show of their own. I wouldn’t have missed this for anything! This garden is astounding. Video of most of it as it was perfection.....
+Returned then to Chinatown for a fantastic dinner of lamb shank & Lava cake at Beaujolais.
+Back on our balcony now with a glass of wine to write up the diary.
+It’s been a truly fabulous day.
+
+Tuesday 26th June
+=
+Another bad night of sleeplessness & woke up to torrential downpour & thunder storms.
+Coffee etc. then decided to go to the Music Box Museum - unfortunately closed on Tuesday.
+We’re going to the beach in the rain instead! 
+Found the cable cars at the harbour front and off to Sentosa island for the day. After a ride on the metro we set off on the cable car. 
+From above the whole island looks like an adventure park! Not a great idea. We walked past it all and eventually found a beach. Stopped at Bora Bora beach bar for very average lunch & a coconut each to drink which was delicious.
+Went over the rickety bridge then to the little island and climbed up the stairs to the view point for a look out to sea. The harbour area is very industrial.
+Walked around the little island & back to Sentosa. Caught the little train & back at the cable car we travelled the other way to Mount Faber where Andrew found a lovely little bar called Dusk for a 🍷 & 🍺 looking out to sea and watching the cable cars wander back & forth.
+We made our way then to Clarke Quay a pretty area by the river for dinner at the Pump Room, an Australian restaurant serving French or Chilean wine!! 
+Andrew has a Craft Beer Sampler of 6 home brewed beers. A burger for Andrew & steak for me. Fabulous meal here, thoroughly enjoyed it.
+Bought a painting of Singapore showing the Super Trees in Chinatown on the way back, been looking at it for a few days & haven’t found anything better.
+Returned to Scarlet for a last glass of wine before bed.
+
+Wednesday 27th June
+=
+After coffee we got ready to go to the Music Box Museum which was a lot more interesting than it sounds. Lots of music boxes, phonograms and clocks from 1700 onwards. Many of them very beautiful wood. Larger ones used on cruise ships, theatres for the overtures and penny ones in restaurants etc.
+A huge one took only British silver threepenny bits! Really enjoyed this lovely little museum.
+Persisting down as we left so after 10 minutes of getting soaked (both in light clothes & sandals) we stopped at Boomerang cafe for lunch. Both had avocado & feta smash on toast with a red onion & tomato salsa & rocket - delicious so should make it at home.
+Went next to the Cat Cafe where we were charged 12 dollars each to go and see the cats without buying any drinks. 11 cats live there, all have been rescued, very sweet but not particularly cuddly. We spent an hour with them, Miley reminded us of Inara a leave me alone I’m busy sort of nature.
+Went to Little India next, a mistake as they all wanted extortionate prices for stuff you could buy at MK market for less than quarter of the price!
+Headed back to Scarlet for a siesta before we go for a river cruise and dinner later.
+Fabulous river cruise from Clarke Quay down to the Bayfront & return when all of Singapore was lit up. Had lovely tapas dinner at Octapas in Clarke Quay afterwards.
+Back at Scarlet we had drinks on the balcony before bed. Early start tomorrow morning!
+
+Thursday 28th June
+=
+Coffee, packed & off to the airport to catch the 10.45am plane to Bangkok!! 
+Arrived 12pm Bangkok time & taxi to Ibis (was Veingtai)
+Checked in & unpacked then off down to the bar by to pool for some Chang.
+Had a snack, then wandered down the Khao San Road & bought some trousers & a little cork handbag for me.
+Took a Grab taxi then to Wine Connection at the Rain Tree Plaza (about an hour away) to meet Simon, Clare, Mol & Amber for dinner. So fabulous to see them all & big hugs from my beautiful girls.
+They are looking so grown up & gorgeous! ❤️😘
+Lovely dinner & chat with all & arranged to meet them on Saturday afternoon. Taxi back to Ibis then.
+Went for a wander & had a drink near the hotel followed by a fantastic 1/2 hour foot massage each - bliss! 
+Then took a walk down the Khao San road again, but it has unbelievably noisy music everywhere, so we walked down to the other end of the street our hotel is on & found a lovely quiet bar called Le Thai under a lovely tree for a drink & watch the world go by.
+
+Friday 29th June
+=
+Coffee, showered etc & now we are going to find Pierre’s to sort out buying some shirts. No longer outside the hotel, they have moved an hours drive away to the Holiday Inn. Andrew has ordered 5 white & 1 burgundy shirts.
+We then got a tuk tuk to Klongsan market which is for local people, interesting but all teeny sizes of course. We had fantastic sushi there though & fresh mangoes for afters.
+Got a taxi back to Ibis then. Got a coconut & beer & sat relaxing for a while.
+Went for a fabulous facial and Andrew had a pedicure at Darins - bliss!
+Walked up Rambuttri Alley then, the street Ibis is on looking at the stalls.
+Went to Big Boss Collection next and ordered tailor made trousers & 3 shirts for Andrew & 3 silk shirts for me.
+Ate at Le Thai beef penang for Andrew & Red Snapper for me. Went shopping then & bought a T shirt each for Andrew, Grahame & I, 2 pairs of elephant patterned shorts and a lovely V necked dress for me & a little dress for little Molly.
+Back to Le Thai afterwards for mango with sticky rice & roti with bananas & condensed milk to share, both delicious. Beer & mojita to accompany them.
+Returned to the Ibis to drop off shopping then went down the other way to have a nightcap & listen to a man playing blues music not too loud with delicious Singapore Sling.
+
+Saturday 30th June
+=
+Up early, gorgeous cat birthday card from Andrew & off out to rhe Chatuchak weekend market. Arrived at 7.15am and had coffee and apricot & cinnamon pastries for breakfast at cafe Doi Tung.
+Wandered around the market for a while, very horrid tummy this morning! 
+Bought a lovely skirt, pair of baggy trousers & another pair of shorts.
+Found a T shirt, a dress & a little sun top with matching shorts for little Molly. Cut visit short then as I was feeling dreadful immodium & back to Ibis then.
+Later on we crossed the street to Star Dome & ordered a banana smoothie for Andrew and a tomato smoothie for me while we wait for the family to arrive.
+When we met up at Simon's hotel they had bought me a card & a Cath Kidston cat handbag for my birthday, it’s lovely!
+We wandered around the shops, had a drink st a lovely riverside bar then went on a boat up to the riverside area. Bought a pretty leaf pendant with matching earrings.
+Bought a pretty elephant fridge magnet at Clare’s favourite elephant shop. Had a drink at a rooftop bar with hats on the trees & Molly fed the catfish some chips so that I could see them.
+Went then to the Riverside Guest house where Clare had booked a table for dinner.
+Fantastic meal there then it was time for a taxi back as we were all tired. Dropped off near hotel & said goodnight.
+Andrew & I walked to Le Thai fir a nightcap before bed.
+It’s been a fantastic birthday really enjoyed the while day!
+
+Sunday 1st July
+=
+Had shower, coffee etc then Simon, Clare, Mol & Amber arrived about 10am. We had a walk up to the lovely jewellery shop that Clare showed us yesterday and Andrew bought me 5 pairs of beautiful earrings! All so gorgeous I couldn’t choose. Found some purple elephant shorts for me too.
+We wandered around the shops for a while as Clare wanted some last minute presents for the family.
+Clare & I went to Darins next a facial, lashes & brows for Clare. I had hair shampoo & blow dry & a pedicure. Andrew, Simon and the girls have gone for a massage.
+Afterwards we had lunch locally at Clare’s favourite restaurant on the street near Ibis & said goodbye to them until next weekend.
+Andrew and I went back to Chatuchak market then, still didn’t find the pet section, bought a beautiful painting of a copper elephant to hang up at home, 4 new T shirts for Andrew and a hat for Fi. Also found 8 lovely wooden elephant napkin holders, a lovely oval wooden bud vase then 6 gorgeous abalone napkin holders too! Bought another little dress in white with elephants on it for little Molly. Back to the hotel to drop off all our purchases. 
+Went to Star Dome then for a lemon mint smoothie. I went to have my hair washed and my fingernails done to match my toes. 
+Then it was time for dinner at Le Thai, yummy as usual. 
+We returned to Ibis then to pack for the morning a case to take to Krabi & the other to leave at Ibis till we return on Friday*****. Ibis have lost our washing my new phase 8 top, my white vest top, 2 bras, new purple trousers, bob marley dress, Andrew’s red Vietnam t shirt & ruins bar t shirt, 2 pairs Andrew’s pants***************
+
+Monday 2nd July
+=
+Up & sorted we’ve dropped case at reception, given Ibis the address at Krabi to send washing & called Grab taxi to go to the airport.
+Flight was just over an hour with a meal provided. We got a taxi then to the pier and after a half hour wait on the shore were taken by speedboat to Centara hotel. Checked in then went for a beer at the beach bar as our room wasn’t ready till 2pm. Eventually were taken to the suite at 2.30pm. It’s really high up, lots of stairs & a couple of steep hills. Well worth it though as the views are stunning. The huge narrow limestone rock is directly in front of us. The limestone rocks surround the back of our suite. The view of the sea and little islands in front are utterly stunning. We have a large balcony with double sun loungers & a hot tub at the front and a table & chairs with another sun lounger to the side in the shade. From the huge bed we can look out over the balcony to the sea. There is a rain shower & a large double bath with view of the sea too. The doors all have special monkey proof locks that must be used all the time to stop monkeys invading the suite.
+We unpacked then sat in the loungers enjoying the fabulous view.
+Later I filled the hot tub & bubbled happily for a while looking out to sea. Showered & changed we went to look at trips to the islands, then decided to eat at the Thai restaurant this evening. Lovely setting with the swimming pool in front and the trees all beautifully lit. Relaxed in peacock chairs by the restaurant bar afterwards with a chang for Andrew & Singapore Sling for me while I write up today’s diary.
+After a walk by the beach we retired to bed, getting taken up by buggy.
+
+Tuesday 3rd July
+=
+Coffee on our balcony then showered & went for breakfast. On our way out we found a land monitor! He climbs walls quickly.
+We paddled & found some lovely shells & relaxed on beanbags on the beach for a while chilling with a chang beer.
+Arranged a day trip to Phi Phi island for tomorrow. 
+Took 2pm speedboat to mainland then a tuk tuk to Nang An beach to get the ferry to Railay beach for the afternoon. Had a coconut while we waited. Exciting Longboat trip over to Railay, had to wade into the Andaman Sea to board & got thoroughly soaked by the waves all the way there.
+Railay is a real hippie type place, loads of Bob Marley stuff there. Wandered around the little shops & bought a lovely blue & orange dress. We had an hours massage each at Muk massage. 
+Went to the beach bar & ordered a fantastic passionfruit mojito & some lunch. Andrew spotted the teeny weeny kitten so I fed her some prawn bits. Seemed to like them so we pulled a few more pieces off of a prawn for her. She ate 4 tails then wandered off. Found her walking out to sea a few minutes later so picked her up and brought her back to the restaurant. Bought her some water & carried her away from the sea. She curled up happily on my chest & I really wanted to take her home! 😥
+After her drink she just wandered off up the road. We really hope she stays safe.
+Back at the beach it was time for the last longboat back to Nang An, didn’t get soaked on the return journey but hit a huge log & he moored up a fair way from the shore so we got soaked again as the waves were up to my waist.
+Reached the pier just missing the boat so having a drink & green curry for Andrew at Krua Thara a restaurant by the harbour while we wait an hour for the next one. Large speedboat collected us & at 9.30pm we are on the balcony relaxing with some wine before bed.
+
+Wednesday 4th July
+=
+Up early this morning as we need to be sorted & breakfasted ready for our pick up from the pier by 9.20am
+We are going on our Phi Phi island trip today. Boarded speedboat at 9.30am, first stop was Bamboo island where we get an hour for a wander, drink etc. Lovely little island, told to be careful of possessions due to 🐒 monkeys. No monkeys to be seen, found a couple of land monitors though.
+Were taken then to have a look at a cave, couldn’t really see much though just holes in the rocks.
+Stopped for a swim for 20 minutes near the caves, water was so delicious after the heat!
+Ten minutes on we stopped to see a couple of monkeys on the cliffs above us.
+Then the heavens opened, torrential downpour for the rest of the afternoon & were wet from the rain - stopped at Phi Phi Don for lunch and were drowned through within seconds. A 10 minute walk to the restaurant followed, had to leave our shoes in doorway & walk through a pool to clean our feet then slither on the tiled floor to the restaurant & toilet!! I could only eat rice, so sat outside on a bench for a ciggie & watched the rain. Bought 2 plastic raincoats mainly to cover my bag which had camera, phones wallet etc in.
+Back at the boat we had a 15 minutes ride to the snorkelling place, 15 minutes there & everybody was back in the boat to go back. 40 minutes later as Krabi was in sight the sun was in sight too, no rain here today - what a bugger, always wanted to see Phi Phi & still haven’t 😥
+We traipsed to the room & had a drink on the balcony then a lovely soak in the bath. Relaxed in our suite for a while then down to the beach bar for a drink before dinner. A beer for Andrew & lychee & ginger mojito for me.
+Went to the Grill restaurant tonight & had fantastic dinner scallops, wagu burger & lime with white chocolate pudding for Andrew. I had pomelo, prawn & avocado, steak & trio of creme brûlée- pandana, coconut & passionfruit all amazing!
+Up to the balcony for a nightcap before bed. Laundry is getting closer, at the wrong Centara & will arrive tomorrow hopefully, just in time to pack it & take it back to Ibis!!! They may as well have kept it for us there - hoping it arrives before we leave.......
+
+Thursday 5th July
+=
+Decided to spend the day here & chill. We went for breakfast, then decided to have a walk to do the Monkey Trail. Quite hard going up a lot of steep wooden stairs, well worth doing as we saw some monkeys in the distance swinging on the trees. Not close enough to photograph unfortunately.
+Returned all hot & sticky as it’s very humid today. Decided to get straight into the shower. Hair washed & wrapped in a towel I heard the door, housekeeper told me there was a monkey on our balcony. Went out to see him & gave him a banana - very bad as not allowed to feed them!
+He ate it leisurely, watching me, then wandered across the balcony rails & went next door. I sat down to have a ciggie & look at pics I’d taken of him & suddenly there he was again sitting next to me. I called Andrew & he came to take a video and more photos. After a while & no more food he strolled behind me & wandered off. Fabulous experience!!
+We sat & relaxed with more coffee & got a phone call to say that a package had arrived for us. Andrew collected it & we now have our laundry back at last from Ibis, all present & correct & ready to take back there tomorrow.
+Spent the rest of today at the beach in the sea or relaxing on the loungers on the beach. Andrew bought me a pina colada which was made with fresh pineapple & coconut blitzed with alcohol & returned into the coconut - absolutely fabulous I could get addicted! 
+Black clouds suddenly appeared & we almost got back to our suite before the heavens opened - torrential downpour which lasted a few hours with gale force winds accompanying it.
+Eventually it calmed down enough for us to go down for dinner at the beach front bar On The Rocks where we had wood fired pizzas green curry for Andrew & caprichiosa for me. Another 2 gorgeous pina colada’s & chang fir Andrew. Mango with sticky coconut rice for pudding. Back on the balcony we are listening to the sea & the rain, still pretty rough but it is monsoon season at present. Hoping that the weather calms overnight as we leave tomorrow by speedboat again to fly back to Bangkok!
+
+Friday 6th July
+=
+Awake early with tummy problems!
+Coffee on the balcony then I started packing while Andrew went for breakfast. This morning is bright and sunny, a lot cooler than usual.
+Read & relaxed till I felt better, then showered & finished packing.
+Checked out & a last sit by the sea before catching the 11am speedboat to the mainland. A good trip although getting to the boat was a bit hairy as the sea is rough & we got our legs soaked as huge waves made the walkway into a roller coaster ride! When our suitcase was unloaded we found that the handle was broken & a big gash down one side!
+Safely ashore we got a taxi to the airport for our 2.45 flight back to Bangkok. Taxi to Pierres to collect Andrew’s shirts, then a tuk tuk to Ibis to check in & retrieve suitcase we left here. Room 805 this time, unpacked then went to Big Boss for our fitting for shirts & Andrew’s trousers.
+Walking down to Le Thai from there it started persisting down again.
+We were welcomed back with a big hug each from Poi our lovely waitress there & had a lovely dinner & a couple of Singapore Slings.
+When the rain ceased we went to Urban massage for a fabulous hour long Thai massage each. 
+A nightcap before bed followed.
+
+Saturday 7th July
+=
+Andrew had a bad night acid reflux & has woken up feeling dreadful today with a bad tummy too.
+Up & coffee by the poolside smoking area. Got broken nail fixed & shirt fitting done & returned to Andrew who’s still not good.
+Went to meet Si & co without him at Adiatique. Wandered & the adults had a fantastic foot massage while Mol & Amber had the fish nibbling their feet. Time then for a lovely cocktail Passion island passion fruit vodka & blue cucacao! Yummy. Walked around the different areas here & Simon took me to an old silver & other metal shop where they sell cutlery & artefacts etc. All are made in Ayutthaya which is Thailands original capital city. It’s 85 kilometres north of Bangkok and was founded around 1350. I bought Barry a goblet from there & really hope he likes it!
+We went for dinner then at Simon and Clare’s favourite restaurant, Amber, Molly and I had chicken and sticky rice. Simon and Clare had some Thai food. We watched a puppet singing & I took some video as the girls love him. We went to the Turkish ice cream man next & watched him teasing the girls twirling the ice creams around, giving them & swiping them away. 
+Afterwards Simon & I took the girls for a ride on the rollercoaster which I videoed, while Clare went to get some charcoal tablets for Andrew, bless her! It was time to leave then so after big hugs we got into separate 🚕 taxis. We will see them all on the 19th of this month as they fly home next Saturday. Taxi dropped me at Khao San road so I popped into the pretty card shop & bought some to take home.
+Fed Andrew some charcoal when I got back, poor darling is still feeling dreadful. Time for bed now.
+
+Sunday 8th July
+=
+After having more charcoal in the middle of the night & more this morning Andrew thankfully 😅 is feeling a lot better!! 😊 We went down for coffee & mainly water for Andrew & he decided he’d come out this morning to MBK a huge outlet place. We bought a pretty flower soap for Jan, a screen cover for my phone & 2 new suitcases in dark blue, one to replace our poor broken one & a matching carry on size. Got a tuk tuk back to Ibis & I packed most of our stuff ready for leaving tomorrow. Left Andrew to have a siesta then & went to have a fantastic facial at Darins, Yupin gave me a foot & calf massage while my face pack was on, then a neck, shoulder & head massage while the ice cold cucumber was refreshing my face - so relaxing! 
+We decided to go to Asiatique so that Andrew could look around there too. Went for a drink by the river, had a Not Mai Tai which was delicious, but not much of it as the glass was full of ice!
+Wandered around looking at the various shops & stalls. We bought some rose hand cream for Jan, a red & black elephant skirt, a gorgeous little blue glass gecko with silver, gold & copper ovals & some 100% pure coconut oil for treating Andrew & I’s hair.
+We had dinner at Capri by the river calamari and a scrumptious bolognaise pizza to share. Andrew is still on water, but I had 2 Singapore Slings as they were buy 1 get 1 free! Took a tuk tuk back then & dropped the shopping off before going back to Le Thai for a last Singapore Sling & say goodbye to the lovely Poi. Big hugs on our arrival & again when we left. Bought the cute mushroom 🍄 T shirt I’ve been looking at on our way back to Ibis for our last night of our holiday.
+And so to bed....
+So looking forward to seeing our baby kittens 🐱 tomorrow!
+
+Monday 9th July
+=
+Up just after 6am & showered, dressed & down for coffee before I finish packing. All packed & sorted we have abandoned the poor old suitcase that has been on so many holidays with us and are taking the new 2 home.
+After a 40 minutes delay we are off on BA plane home. Having paid a lot extra for business class the seats are uncomfortable, the video player on Andrew’s side won’t switch off & is flickering non stop & the food we wanted on menu has run out. Economy seats have had it, plus they got starters with 2nd meal & we didn’t. Dreadful flight home!
+Peter was there to meet us & cats were pleased to see us.
