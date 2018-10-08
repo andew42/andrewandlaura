@@ -1,4 +1,4 @@
-publishdir = "../andew42.github.io"
+publishdir = "./docs"
 baseurl = "http://git.andrewandlaura.com"
 languageCode = "en-gb"
 title = "Andrew and Laura"

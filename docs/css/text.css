@@ -1,0 +1,87 @@
+body {
+    font-family: San Francisco, Helvetica Neue, Segoe UI, Helvetica, Arial, sans-serif;
+    margin: 4%;
+}
+
+a {
+	text-decoration: none;
+}
+
+h1 a, h2 a, h3 a, h4 a, h5 a, h6 a {
+	color: inherit;
+}
+h1 { font-size: 1.6em; }
+h2 { font-size: 1.5em; }
+h3 { font-size: 1.4em; }
+h4 { font-size: 1.3em; }
+h5 { font-size: 1.2em; }
+h6 { font-size: 1.1em; }
+
+ul {
+	padding-left: 1.2em;
+}
+
+li > ul {
+	margin: 0;
+}
+
+/* Holiday Section Node */
+
+.holidaysList h1 {
+    -webkit-margin-before: 0em;
+    -webkit-margin-after: 0em;
+    color: purple;
+    font-size: 1.4em;
+    margin-top: 0.7em;
+    margin-bottom: 0.12em;
+    font-weight: 200;
+}
+
+.holidaysList ul {
+    color: purple;
+    font-size: 1.2em;
+    line-height: 1.5em;
+    font-weight: 200;
+    list-style-type: none;
+}
+
+.holidaysList ul a:link {
+    color: dodgerblue;
+}
+
+.holidaysList ul a:visited {
+    color: dodgerblue;
+}
+
+/* Holiday Post */
+
+.holidayBody nav {
+    color: purple;
+    font-size: 1.2em;
+    line-height: 1.5em;
+    font-weight: 200;
+}
+
+.holidayBody nav a:link {
+    color: dodgerblue;
+}
+
+.holidayBody nav a:visited {
+    color: dodgerblue;
+}
+
+.holidayBody h1 {
+    -webkit-margin-before: 0em;
+    -webkit-margin-after: 0em;
+    color: purple;
+    font-size: 1.4em;
+    margin-top: 0.7em;
+    margin-bottom: 0.12em;
+    font-weight: 200;
+}
+
+.holidayBody p {
+    -webkit-margin-before: 0em;
+    -webkit-margin-after: 0em;
+    margin-bottom: 0.5em;
+}
