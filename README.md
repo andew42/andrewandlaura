@@ -1,11 +1,10 @@
-#Hugo source for git.andrewandlaura.com
+#git.andrewandlaura.com
 
 ##Clone
-git clone andrewandlaura and andew42.github.io into the same folder so they are sibling folders
+git clone andrewandlaura
 ```bash
 ls .
 andrewandlaura
-andew42.github.io
 ```
 
 ##Install Hugo
@@ -26,7 +25,5 @@ hugo server
 Browse to http://localhost:1313/
 
 ###Update github
+git add -A ./docs
 push content changes
-
-###Publish to git.andrewandlaura.com
-./deploy.sh
