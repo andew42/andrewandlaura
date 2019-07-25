@@ -1,5 +1,5 @@
 publishdir = "./docs"
-baseurl = "https://git.andrewandlaura.com"
+baseurl = "https://git.andrewandlaura.com/"
 languageCode = "en-gb"
 title = "Andrew and Laura"
 SectionPagesMenu = "main"
