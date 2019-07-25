@@ -3,6 +3,34 @@
   xmlns:xhtml="http://www.w3.org/1999/xhtml">
   
   <url>
+    <loc>https://git.andrewandlaura.com/holidays/2019maltasicily/</loc>
+    <lastmod>2019-06-22T00:00:00+00:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://git.andrewandlaura.com/</loc>
+    <lastmod>2019-06-22T00:00:00+00:00</lastmod>
+    <priority>0</priority>
+  </url>
+  
+  <url>
+    <loc>https://git.andrewandlaura.com/holidays/</loc>
+    <lastmod>2019-06-22T00:00:00+00:00</lastmod>
+    <priority>0</priority>
+  </url>
+  
+  <url>
+    <loc>https://git.andrewandlaura.com/radio/links/</loc>
+    <lastmod>2019-06-20T00:00:00+00:00</lastmod>
+  </url>
+  
+  <url>
+    <loc>https://git.andrewandlaura.com/radio/</loc>
+    <lastmod>2019-06-20T00:00:00+00:00</lastmod>
+    <priority>0</priority>
+  </url>
+  
+  <url>
     <loc>https://git.andrewandlaura.com/holidays/2018singaporethailand/</loc>
     <lastmod>2018-06-22T00:00:00+00:00</lastmod>
   </url>
@@ -228,19 +256,7 @@
   </url>
   
   <url>
-    <loc>https://git.andrewandlaura.com/</loc>
-    <lastmod>2018-06-22T00:00:00+00:00</lastmod>
-    <priority>0</priority>
-  </url>
-  
-  <url>
     <loc>https://git.andrewandlaura.com/categories/</loc>
-    <priority>0</priority>
-  </url>
-  
-  <url>
-    <loc>https://git.andrewandlaura.com/holidays/</loc>
-    <lastmod>2018-06-22T00:00:00+00:00</lastmod>
     <priority>0</priority>
   </url>
   
