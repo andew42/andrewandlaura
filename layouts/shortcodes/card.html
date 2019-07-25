@@ -1,0 +1,11 @@
+<li class="cards__item">
+    <div class="card">
+        {{- if .Get 1 -}}
+            <div class="card__image {{.Get 1}}"></div>
+        {{- end -}}
+        <div class="card__content">
+            <div class="card__title">{{.Get 0}}</div>
+            <div class="card__text">{{.Inner}}</div>
+        </div>
+    </div>
+</li>

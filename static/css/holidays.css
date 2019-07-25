@@ -1,0 +1,22 @@
+body {
+    font-family: Helvetica Neue, Helvetica, Arial, sans-serif;
+    font-weight: 200;
+    color: #303030;
+}
+
+a {
+    text-decoration: none;
+}
+
+li {
+    list-style-type: none;
+    line-height: 2em;
+}
+
+li a:link {
+    color: dodgerblue;
+}
+
+li a:visited {
+    color: dodgerblue;
+}

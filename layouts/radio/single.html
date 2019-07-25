@@ -1,0 +1,19 @@
+<!DOCTYPE html>
+<html>
+<head>
+    <meta http-equiv="content-type" content="text/html; charset=utf-8">
+    <meta name = "viewport" content = "width = device-width, height = device-height">
+    <title> {{ .Title }} &middot; {{ .Site.Title }} </title>
+    <link rel="stylesheet" href="{{ .Site.BaseURL }}css/sitemenu.css">
+    <link rel="stylesheet" href="{{ .Site.BaseURL }}/css/radio.css">
+</head>
+<body>
+<main>
+    <article>
+        <ul class="cards">
+            {{ .Content }}
+        </ul>
+    </article>
+</main>
+</body>
+</html>

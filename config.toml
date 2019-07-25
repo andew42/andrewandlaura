@@ -3,7 +3,9 @@ baseurl = "https://git.andrewandlaura.com"
 languageCode = "en-gb"
 title = "Andrew and Laura"
 SectionPagesMenu = "main"
-[[menu.main]]
-    name = "Our Holidays"
-    identifier = "holidays"
-    url = "/holidays/"
+[menu]
+  [[menu.main]]
+    identifier = "home"
+    name = "Home"
+    url = "/"
+    weight = -110
